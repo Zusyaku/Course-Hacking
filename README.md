@@ -1,6 +1,55 @@
 # Course-Hacking
 Video Belajar Coding Dan Hacking
 
+​🔰ADVANCED HACKING - CRACKING METHODS BUNDLE🔰
+
+✅Size :- 1.61 GB
+[●] - ʜᴀᴄᴋɪɴɢ ᴍᴇᴛʜᴏᴅs
+[●] - ᴄʀᴀᴄᴋɪɴɢ ᴍᴇᴛʜᴏᴅs
+[●] - ɪɴᴄᴏᴍᴇ ᴍᴇᴛʜᴏᴅs
+[●] - ᴇᴀʀɴɪɴɢ ᴍᴇᴛʜᴏᴅs 
+[●] - ᴄᴏᴅɪɴɢ ᴍᴇᴛʜᴏᴅs
+[●] - ᴅᴀʀᴋᴡᴇʙ ɢᴜɪᴅᴇs
+[●] - ʙʟᴀᴄᴋʜᴀᴛ ɢᴜɪᴅᴇs
+[●] - ᴄᴀsʜ ᴇ-ʙᴏᴏᴋs ᴇᴛᴄ.
+
+🔻L!NK :- https://mega.nz/folder/2dozgRbZ#0nm5BaIgW0Hw0vUxjgHt8g/folder/uNhyGYBB
+
+🟢 Fɪʀsᴛ Oɴ Tᴇʟᴇɢʀᴀᴍ 🟢
+
+​🔰COMPLETE PENTRATION TESTING & ETHICAL HACKING TUTORIAL🔰
+
+🖱Price :- 30$ | 1500+ INR
+✅Size :- 5.27GB
+🔻L!NK :- https://mega.nz/file/xwc2BDiI#ZLQFieRUWCzU2akDyeKnZ0pydv-cpJRPPfLoSH-sVZk
+
+🟢 Fɪʀsᴛ Oɴ Tᴇʟᴇɢʀᴀᴍ 🟢
+
+
+
+​🔰ULTIMATE CRACKING PACK - 2020🔰
+
+🖱Size :- 3.97GB
+🔻L!NK :- 
+https://mega.nz/#!PNdXnQ5a!3wO9r6IU0I2btKHiad0p1QREmCJV0OHgKij2RIEORuc
+
+🟢 Fɪʀsᴛ Oɴ Tᴇʟᴇɢʀᴀᴍ 🟢
+
+
+
+​🔰ENCRYPT ― DECRYPT TOOLS🔰
+
+🖱Size :- 30MB
+Ⓜ️Files :- 60+Files
+
+🔻L!NK :- https://mega.nz/#!h89mVQ7Y!6aTrK1XM-_IxUzRe9vppnXYX-ZUiopbw2SSaHBqk1wU
+
+🔐Password : - level-23.info
+
+🟢 Fɪʀsᴛ Oɴ Tᴇʟᴇɢʀᴀᴍ 🟢
+
+
+
 
 Operating System Part 1
 
