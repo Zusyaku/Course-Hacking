@@ -1,6 +1,178 @@
 # Course-Hacking
 Video Belajar Coding Dan Hacking
 
+​🔰PENTESTER ACADEMY COURSE COLLECTION🔰
+
+❤️‍🔥ᴘᴇɴᴛᴇsᴛᴇʀ ᴀᴄᴀᴅᴇᴍʏ ɪs ᴀ ʙᴇsᴛ ᴀᴄᴀᴅᴇᴍʏ ғᴏʀ ʟᴇᴀʀɴɪɴɢ ʜᴀᴄᴋɪɴɢ ᴀɴᴅ ᴘᴇɴᴛʀᴀᴛɪᴏɴ ᴛᴇsᴛɪɴɢ. ɪᴛ ᴡɪʟʟ ᴘʀᴏᴠɪᴅᴇ ᴛʀᴀɪɴɪɴɢ ʙᴀsᴇᴅ ᴄᴏᴜʀsᴇ ᴀɴᴅ ᴛʜᴇɪʀ ᴀʟʟ ᴄᴏᴜʀsᴇs ᴀʀᴇ ᴇxᴘᴇɴsɪᴠᴇ ᴀɴᴅ ᴛʜᴇʏ ᴡɪʟʟ ᴘʀᴏᴠɪᴅᴇ ɢᴏᴏᴅ sᴇʀᴠɪᴄᴇ ɪɴ ᴛʜɪs ғɪᴇʟᴅ.
+
+✅ʜᴇʀᴇ, ɪs ɢᴏᴏᴅ ɴᴇᴡs ғᴏʀ ʏᴏᴜ ᴀʟʟ ɢᴜʏs.
+ʜᴇʀᴇ ɪ ᴍ sʜᴀʀᴇ ᴍᴏsᴛʟʏ ᴘʀᴇғᴇʀᴀʙʟᴇ ᴘᴇɴᴛʀᴀᴛɪᴏɴ ᴀᴄᴀᴅᴇᴍʏ ᴇxᴘᴇɴsɪᴠᴇ ᴄᴏᴜʀsᴇs ғᴏʀ ғʀᴇᴇ.
+
+💖ᴛᴏɴɪɢʜᴛ ɪs ʟᴀsᴛ ɴɪɢʜᴛ ᴏғ 2021 ᴀɴᴅ ɪ ᴡᴀɴᴛ ᴛᴏ ᴍᴀᴋᴇ ɪᴛ ᴍᴇᴍᴏʀᴀʙʟᴇ sᴏ ɪ ᴅɪᴅ ᴡᴏʀᴋɪɴɢ ᴏɴ ᴛʜɪs ᴀɴᴅ ᴘᴏsᴛ ᴛʜɪs ᴄᴏᴜʀsᴇs ғᴏʀ ʏᴏᴜ. ᴀғᴛᴇʀ ᴀᴛᴛᴇɴᴅɪɴɢ ᴛʜɪs ɴᴏᴛᴇ ʏᴏᴜ ɴᴇᴇᴅ ᴛᴏ ᴅᴏ ᴏɴᴇ ᴛʜɪɴɢ ᴛʜᴀᴛ ɪᴍᴘᴏʀᴛ ᴛʜɪs ᴄᴏᴜʀsᴇ ᴏɴ ʏᴏᴜʀ ᴄʟᴏᴜᴅ ᴏʀ ᴄᴏᴍᴘᴜᴛᴇʀ ᴏʀ ʜᴀʀᴅ ᴅʀɪᴠᴇ ʙᴇᴄᴀᴜsᴇ ᴏғ ɪ ᴅᴏɴ'ᴛ ᴋɴᴏᴡ ᴡʜᴇɴ ᴛʜɪs ʟɪɴᴋs ᴡɪʟʟ ɴᴏᴛ ᴡᴏʀᴋɪɴɢ. ᴏʀ ᴍᴇɢᴀ sᴜsᴘᴇɴᴅ ᴍʏ ᴀᴄᴄᴏᴜɴᴛ. 
+
+🙇‍♂ɢᴏᴏᴅ ʟᴜᴄᴋ ᴛᴏ ᴀʟʟ ᴏғ ʏᴏᴜ ғᴏʀ ᴀᴛᴛᴇɴᴅɪɴɢ  ɴᴇᴡ ʏᴇᴀʀ. ʜᴏᴘᴇ ᴛʜᴇʀᴇ ɪs sᴏᴍᴇᴛʜɪɴɢ ɢʀᴇᴀᴛ ᴘᴀʀᴛ ᴡɪʟʟ ʙᴇ ᴅᴏɴᴇ ᴀғᴛᴇʀ ᴛʜɪs 2 ʏᴇᴀʀs ᴏғ ʜᴇᴀʟᴛʜ ᴘʀᴏʙʟᴇᴍs
+
+sɪᴢᴇ :- 43.35 ɢʙ
+ᴘʀɪᴄᴇ :- 70000+ ₹
+
+🔻L!NK :- https://mega.nz/folder/vaQHlIQb#i8B7gVZmR46O2FC67U15UA
+
+🔰 MASSIVE CRACKING COLLECTION for 2022 🔰
+
+https://drive.google.com/file/d/1BASmj2fB-TLGzjGeOHBeDNyPRWcHauG8/view?usp=sharing
+
+https://mega.nz/file/x0JhnYLS#D-BobaGeUvGrCcWL4gdmqow4Y2J96lXu_6YNuE4a0Ac
+
+➖ @TheHackersSpace ➖
+
+🌀 COLLECTION OF COURSES FROM BLACKHAT PAKISTAN WHICH IS USED TO SEL🌀
+
+🎁 All the content's are mentioned in Download Page.
+
+🔗 Link :- https://mega.nz/folder/oktRyI7J#ELKbpZV4oOACa49Y_nj_-A
+
+👤  @SoUmYaJiT_SJ
+
+Linux Academy course
+
+You'll Learn:
+
+ - Essential commands.
+ - Operation of running systems
+ - User and group management
+ - Networking
+ - Service Configuration
+ - Storage management
+ - System design and deployment
+
+Download link-
+https://drive.google.com/drive/folders/1tsR8k3SC3r-mLgyixJZjTlsGwkYOO8na
+
+🔥Complete Carding Course With Tools🔥BY
+ @SoUmYaJiT_SJ
+
+This is the best and paid carding course with private stuffs like tools and all! We are providing it for free so Download before it gets expire.
+
+Download DRIVE LINK 🔗🖇️https://drive.google.com/drive/mobile/folders/1MWxHQKO5EL8DkejsHk137YXLAWLGDaie
+
+Share Everywhere with cradit
+
+🔐Wifi Hacking Course in Hindi🔓 
+
+⭕️ What you'll learn :-⭕️ 
+
+Students will get the Intermediate knowledge of Kali Linux and not only that you will also be able to crack the passwords of vulnerable WiFi Routers.
+
+Attacks before gaining access to router and hiding your identity in the process
+
+Various methods to gain access to router
+
+Who this course is for:-
+
+1.Anyone who wants to learn Professional Wireless 2.Penetration testing or WiFi hacking just for fun.
+
+🔥Direct Download link:- 🔥
+
+https://drive.google.com/folderview?id=1tgkKt4lSpXD3GnMQRgUb4bbtlmpP9XOE
+
+🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥
+
+Share And Support Us❤️
+ ➖ No Cost Courses ➖
+ 
+ 🔘 SCARLETTA'S FRAUD BIBLE/PACK 2021 🔘
+
+TOPICS:
+- BOTNET STUFF (BOTNETS, CRYPTERS, RATS, RESOURCES FOR LEARNING)
+- CARDING (2 CARDING CLASSES, MANY CARDING TUTORIALS, CARDING TOOLS)
+- ATM HACKING
+- COOKIES GUIDE (IMPORT AND LOGIN WITH THEM)
+- ACCOUNT CRACKING COURSE
+- ANDROID HACKING COURSE
+- CARDING FULL COURSE
+- SPAMMING FULL COURSE
+- MOBILE SECURITY & NETWORK HACKING COURSE
+- SS7 HACKING & EXPLOITATION COURSE
+- CRACKING BIBLE & CONFIGS + CRACKING GUIDES AND TOOLS
+- FRAUD BIBLES 2021
+- CHECKERS & VALIDATORS (CHASE, SUPREME VALIDATOR, AMAZON CHECKER, BOUNCE EMAIL, SMTP CRACKER, BILLANATOR FUCKED, YAHOO CHECKER, xMARVEL TOOLS, APPLE, PAYPAL NUMIFY etc.)
+- LETTER + LETTER MAKING TOOL
+- SCAMPAGES (MORE THAN 1000)
+- FRAUD METHODS (ACH TUTS, MD, REFUNDING, CARDING, BOTNET, BILLPAY AND MANY MORE)
+- PAYPAL BYPASS, ALL ABOUT ATMS, 3D SMS BYPASS
+- DATING QUESTIONS AND ANSWERS, SUGAR DADDY 
+- SSN TEMPLATE, SPAMMING PACK
+- SMS AND EMAIL SENDERS
+- HACKING STUFF (PENTEST, PROGRAMMING, SCRIPTING, SECURITY, SS7, HOW TO SETUP SMTP SERVER, HACKING SCRIPTS)
+- LARAVEL TOOLS (SHELLS, EXPLOIT TOOLS, CONFIG GRABBER, DORKER, SYMLINKER, WHMCS KILLER, FOX WSO, IP TOOLS, LARAVEL MONSTER CLEANED, JEX, FLASH X CLEANED, V10 SUPER SAIYAJIN, SYMLINKER V2 CLEANER, SMTP CRACKER....)
+- RANDOM TOOLS (ENCODER PHP, BOOT PANEL SOURCES, ADB, PYTHON SCRIPTS)
+- DRUG SYNTHESES
+- GERMAN FRAUD & HACKING BOOKS 
+
+🔗 DOWNLOAD :
+https://mega.nz/folder/dAwWDKLS#_sJMzYUE3QXzU_ah4tsz2Q
+
+
+
+💻POST BY❌@SoUmYaJiT_SJ❌
+
+🔰Cybrary - Advanced Penetration Testing
+🔰
+
+Ⓜ The Advanced Penetration Testing course teaches the cyber attack lifecycle from the perspective of an adversary. Become more familiar with the most widely used penetration-testing tools, manipulate network traffic, and perform web application attacks such as cross-site scripting and SQL injection.
+ 
+🔗 Download :
+https://mega.nz/folder/3TRG2IiK#cYUfjdBRz4FlsfZFedx4NA
+
+@SJHACKERDARKWEB
+
+🔰 THE BIGGEST CRACKING PACK "THE PACK OF THE GODS 3.0 🔰
+
+Contains :- 
+🔹 Proxy checkers 
+🔹 Proxy grabbers 
+🔹 SQL Tools 
+🔹 Dork making tools 
+🔹 Combo making tools 
+🔹 Parsers 
+🔹 Testers
+🔹 Checkers
+🔹 SQLi Dumper
+🔹 And Many Such Tools
+
+Credits To The Original Owner Who Have Collected These Tools 
+
+Original Costs :- $1000
+
+Download Link :-
+https://anonfiles.com/X0Ibc6u1o1/THE_PACK_OF_THE_GODS_3.0_-BIG_BANG_UPDATE_APRIL_28-_2020_rar
+
+
+🔅🔅 @SoUmYaJiT_SJ  🔅🔅
+
+🌀 Virus Making and Malware Development Course 🌀 
+
+https://drive.google.com/drive/folders/1b7jN84Tn819CI8VKG1SLnixKIG5lI-jI
+
+Enjoy 👍🏻❤
+
+🔥 @SoUmYaJiT_SJ  🔥
+
+RAT NEW VERSION 007 🔥
+HACK FULL ANDROID PHONE 
+EVERYTHING.,.........
+
+USE AND GIVE FEEDBACK HERE
+
+@SoUmYaJiT_SJ
+
+
+LINK RAT 🔗🖇️🖇️🖇️.   https://drive.google.com/file/d/1-T3PUOuEMiUZk-xeSQbZeF2MP3CtuNdI/view
+
+ZIP PASSWORD = www.masterscyber.com
+
+
+
 ​🔰ADVANCED HACKING - CRACKING METHODS BUNDLE🔰
 
 ✅Size :- 1.61 GB
