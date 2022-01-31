@@ -1,5 +1,580 @@
 # Course-Hacking
+
 Video Belajar Coding Dan Hacking
+
+
+🔰 The Complete Ethical Hacking Course 🔰
+
+🌀 Hacking Lab setup | Kali Linux 101
+🌀 Anonymity Online | Dark Web
+🌀 Network Pentesting | Wireless Attacks 
+🌀 Post Connection Attacks | System Pentest
+
+🌀 Attacks On users | Social Engineering
+🌀 Social Media Security | Beef
+🌀 External Networks Attacks | SQL 101
+🌀 Fake Game Website Attack | SQL Injection
+
+🌀 Post Hacking Sessions | Essentials
+🌀 Hacker Methodology | Functions
+🌀 Website Reconnaissance | Pentesting
+🌀 Website Pentesting Tools | Mac Changer
+
+🌀 Ethical Hacking Certifications | Packet Listener
+🌀 Python For Ethical Hacking | Network Scanner
+🌀 Python Data type & Structure | Control Statements & Loops
+🌀 Object Oriented Programming | Packaging & Malicious files
+
+🌀 Modules | Man In the Middle
+🌀 Keylogger | Backdoor
+🌀 Closing & Ethical Hacker's Handbook Etc...
+
+ 🔅 Size: 9.07 GB 
+
+🔗 Link -  https://mega.nz/folder/ppQCVbgL#u8wcVDSceGNi3qr6WlSBjA
+
+🔺 Unmute And Support Us 🔻
+➖ @HackingCraze ➖
+
+
+
+🔰Software Cracking :- Learn How To Crack Software Legally ⚡by @N00b_Sir 🔰
+
+🌀Udemy Banned This Course 🔐 
+
+🌀About Course :-
+Crack Software Legally by Solving CrackMe Challenges whilst learning Reverse Engineering & Assembly Language the fun way.Learn To Crack Softwares Legally With This Latest Advance Software Cracking Course.
+
+Topics Covered :-
+🔹 How to crack software serial number keys
+🔹 Remove Nag Screen Reminders asking you to register 
+🔹 Convert Trial Software to Fully Functional Software 
+🔹 Extend 30-day Trial Period Software
+🔹 Learn Reverse Engineering and Assembly Language
+🔹 How to Crack Software For Fun by solving CrackMe Challenges.
+🔹 And Much More
+
+💢Requirements Of Course :- 
+Size :- 7.61GB
+Windows PC
+Basic knowledge in C, 
+Assembly Language and Win32 API would be helpful but not mandatory.
+
+🌀Download Link :-
+https://mega.nz/folder/XWRjVAAA#_kLgDVCfVTGAuFTDRsk1WQ
+
+🌀Ask your doubts in Comments!
+
+📍Credit:- Click Here  (Private Channel)
+
+✖️ @HackingCraze ✖️
+
+
+
+🔥 31 Paid Courses Full links
+
+‍ 🔰Hadoop Fundamentals🔰
+https://drive.google.com/drive/folders/1xICarprcfM4CkFR-veb23lCd6rnhV0Xs
+
+🔰Cybersecurity Collection🔰
+https://drive.google.com/drive/folders/1q2sOBNU4lPBkwtF1Msl6uCACBV5TUGWD
+
+🔰Machine Learning for Apps🔰
+https://drive.google.com/folderview?id=12rfOJrpUj9vt9HYg66djxYDads4HmGDB
+
+🔰Advanced React and Redux🔰
+https://drive.google.com/folderview?id=1Tk_-NOXDJ2xuKefQ-r0TiwSvYz0ejKgd
+
+🔰Web Developer Nanodegree🔰
+https://drive.google.com/folderview?id=1-HJRjs2jM-dS9toH46dic4h7Gwnlk_hS
+
+🔰Computer Vision Nanodegree🔰
+https://drive.google.com/folderview?id=1770Z6Rw8tSq2iXjS2X_MoJwUd6EuZxCq
+
+
+🔰Millionaire DJ FL Studio 12 - Pro Music Production Course🔰
+https://drive.google.com/folderview?id=1soqPKlzEak7BvAK0LTwMm-PdvbhQ6pX5
+
+🔰Pentester Academy - x86 Assembly Language and Shellcoding on Linux🔰
+https://drive.google.com/folderview?id=1KKKlL5TzdXDIxrSOz0Gmz3RWGTh_0Xli
+
+🔰Kali linux - Complete Training Program from Scratch course🔰
+https://drive.google.com/folderview?id=1714TBeP8chDWSIPCcALAuEM5ZNQsLYsn
+
+🔰Complete Machine Learning and Data Science Zero to Mastery🔰
+https://drive.google.com/folderview?id=1bFcmRP5EAtksPtjiuV9qpHyNK6sci8WM
+
+🔰Python Ethical Hacking  Build tools for ethical hacking🔰
+https://drive.google.com/drive/folders/1aBX4Y0cqQSZJZoPiweGEkvyJ05r3SdJY
+
+🔰Deep Learning With TensorFlow Videos🔰
+https://drive.google.com/folderview?id=1_az7Ue500bdT-R25qGrhitqhaxNILcxG
+
+🔰Bug Bounty Hunting Guide to an Advanced Earning Method🔰
+https://drive.google.com/drive/folders/1ytZk4T1EnPPwmtt9FJX0BjNPnafzPWwr
+
+🔰Build Responsive Real World Websites with HTML5 and CSS3🔰
+https://drive.google.com/folderview?id=1WJ-oGlQJFt4PTg2BE1ZKTvronD8HOONb
+
+🔰Deep Reinforcement Learning Nanodegree v1.0.0🔰
+https://drive.google.com/folderview?id=1joMAOhnqM6pTu4xyS01MEpZUUT1g4llq
+
+🔰The Complete ASP.NET MVC 5 Course🔰
+https://drive.google.com/folderview?id=1izOIk6Xzdnkxi9C-qtUOmB2kgLULfsP5
+
+🔰The Python Mega Course Build 10 Real World Applications🔰
+https://drive.google.com/folderview?id=1n2VVih2IcFdGJ6smCB5nJ5hYu42lT5kn
+
+🔰Learn Python & Ethical Hacking From Scratch🔰
+https://drive.google.com/uc?id=1wZ8bW3acJa9CHS9672-Ydo04X3yLrsUt&export=download
+
+🔰Learn Ethical Hacking From Scratch🔰
+https://drive.google.com/folderview?id=1Ns62tznu2mj7Q0QktrWGCcNsrL5CigtN
+
+🔰Photoshop CC  In an Easy Simple Professional Way🔰
+https://drive.google.com/folderview?id=1fTWvTMI318u22eVddaaZ3flZ6IRUB44d
+
+🔰Learn Python & Ethical Hacking From Scratch🔰
+https://drive.google.com/folderview?id=1JeqDaWOu0kSdNGFEcwwI9q_LpLqnIp8f
+
+🔰Website Hacking Course 2018 Earn Money by doing Bug Bounty🔰
+https://drive.google.com/drive/folders/1fePVylnQPWj_84-nx9PThfcpwJTtv-9C
+
+🔰Deep Learning Nanodegree Program🔰 https://drive.google.com/folderview?id=1muTggFfCeT41P6dSALVUoPYMAFW639cB
+
+🔰Linux Foundation Certified Engineer (2019)🔰
+https://drive.google.com/folderview?id=1qyliHCTOiqEa38IaD226mdD0LHLABlAC
+
+🔰Ethical Hacking With Python, JavaScript and Kali Linux🔰
+https://drive.google.com/folderview?id=1wniooIDbtt7yI9tx1sCjVdKn3ftZNas2
+
+🔰Natural Language Processing Nanodegree v1.0.0🔰
+https://drive.google.com/folderview?id=1cg-msrtVjaxqoMg_LkjJunh999o9lv9U
+
+🔰Python for Finance Investment Fundamentals & Data Analytics🔰
+https://drive.google.com/folderview?id=1T4FMqAmZ1KfK_f8TsdZdHREEG8Z6U8Nl
+
+🔰AZ-103  AZ-104 Azure Administrator Exam Certification 2020🔰
+https://drive.google.com/folderview?id=1j3itB8pRO7ckY-YciIYE_7zhV50mwcq1
+
+🔰CSS - The Complete Guide 2020 (incl. Flexbox, Grid  Sass)🔰
+https://drive.google.com/folderview?id=1zTjlqkSyXqmFHdTr2rGAAnx3_XCt3qIw
+
+🔰AWS Certified Solutions Architect - Associate 2020🔰
+https://drive.google.com/folderview?id=14eS7Bpil9ZQWo44NYDNWWGJ9Fam9up6B
+
+🔰Google Data Studio A-Z for Data Visualization and Dashboards🔰
+https://drive.google.com/folderview?id=11vvsLQCiXgg2BlA3mHIJw7sNS_MS-S3_
+
+
+Note: The google drive links will only be open in browser.
+You will find error when you try to open from telegram.
+
+For BGMI HACKS JOIN :- https://t.me/+u4hZ70_8T8I0OGM9
+
+Share for more🔥🔥🔥
+
+➖ @HackingCraze ➖
+
+
+🔰 zSecurity All Courses 🔰
+
+🌀Zaid Sabih Courses Download FREE!
+
+🌀Number of Course - 10
+
+
+▪️Learn Ethical Hacking From Scratch
+
+▪️Learn Python & Ethical Hacking From Scratch
+
+▪️Website Hacking Penetration Testing & Bug Bounty Hunting
+
+▪️The Ultimate Dark Web, Anonymity, Privacy & Security Course
+
+▪️Learn Hacking Using Android From Scratch
+
+▪️Network Hacking Continued - Intermediate to Advanced
+
+▪️Learn Network Hacking From Scratch (WiFi & Wired)
+
+▪️Learn Social Engineering From Scratch
+
+▪️Learn Wi-Fi Password Penetration Testing (WEP/WPA/WPA2)
+
+▪️ARP spoofing & Man In The Middle Attacks Execution & Detection
+
+
+
+🔗 Download Link:
+https://mygavilan-my.sharepoint.com/:f:/g/personal/kali_masi_my_gavilan_edu/EqHWjlOZBipFqojj04ZabS4B7rfBYUEqDe495Q5Q6QbXHA?e=MWn23f
+
+🥰 Join Us now to learn more about Hacking and cyber security for free 🥰
+
+✖️ @HackingCraze ✖️
+
+
+🔰 MEGA INSTAGRAM HACKPACK 🔰
+
+Credit :- Click here
+
+⭕Hack Instagram account with fake followers technique (Video Tutorial Leaked)
+
+⭕Hack Instagram using Kali Linux(Video Tutorial)
+
+⭕Hack Instagram Using Termux (Video Tutorial) 
+
+⭕The Complete Security And Hacking  On Instagram Advanced Course
+
+⭕How to Hack Instagram using bruteforce method
+
+⭕Hack Instagram with best working methods
+
+⭕Hijack Instagram method
+
+⭕Instagram Hacking script with bruteforce attacking using termux
+
+⭕Instagram Hacking using fake login page by phishing method
+
+⭕Instagram Hacking method using termux tools
+
+⭕Instagram verification method
+
+⭕Instagram Xtreme Mod Apk 2020 Updated Apk
+
+⭕Instagram Black Mod Apk
+
+⭕Instagram Xtreme Black Mod Apk Pro
+
+⭕Anti Revoke Messages Apk(Get All Deleted Messages on Instagram)
+
+⭕Instagram Hypervote Terminal
+
+⭕Method toTrack location of a person chatting on Instagram method
+
+⭕Method to Get a verified badge on Instagram
+
+⭕Method To Get Delete Instagram Search History And Recover  it Back
+
+⭕Top 10 Instagram Free likes and followers Sites
+
+⭕Instagram BOT Gain Followers With Autofollow like and Unfollow
+
+⭕Instagram Followers Course Worth1200$
+
+https://www.mediafire.com/file/uzu562fkd5mwk4z/MEGA_INSTAGRAM_HACKPACK.zip/file
+
+
+❤️#50k As I promised
+
+✖️ @HackingCraze ✖️
+
+@TheStarkArmy
+
+🔰Software Cracking :- Learn How To Crack Software Legally 🔰
+
+🌀Udemy Banned This Course 🔐 
+
+🌀About Course :-
+Crack Software Legally by Solving CrackMe Challenges whilst learning Reverse Engineering & Assembly Language the fun way.Learn To Crack Softwares Legally With This Latest Advance Software Cracking Course.
+
+Topics Covered :-
+🔹 How to crack software serial number keys
+🔹 Remove Nag Screen Reminders asking you to register 
+🔹 Convert Trial Software to Fully Functional Software 
+🔹 Extend 30-day Trial Period Software
+🔹 Learn Reverse Engineering and Assembly Language
+🔹 How to Crack Software For Fun by solving CrackMe Challenges.
+🔹 And Much More
+
+💢Requirements Of Course :- 
+Size :- 7.61GB
+Windows PC
+Basic knowledge in C, 
+Assembly Language and Win32 API would be helpful but not mandatory.
+
+🌀Download Link :-
+https://mega.nz/folder/XWRjVAAA#_kLgDVCfVTGAuFTDRsk1WQ
+
+Credit : N00b_Sir
+☠ @HateHacker 💻
+♻️Share Our Channel and Support US♻️
+
+@TheStarkArmy
+
+🔰BOOKS FOR HACKING 🔰
+
+#requested 
+
+📎Link :- 
+https://mega.nz/folder/SlhihQKb#0ggUkIVF4bZcug2Ms2Wu1g
+
+☠ @HateHacker 💻
+♻️Share Our Channel and Support US♻️
+
+
+☣️Complete Web Development
+by Dr Angela Yu ☣️
+By @TheStarkArmy
+
+The Complete 2022 Web Development Bootcamp
+
+Paid course Link: https://www.udemy.com/course/the-complete-web-development-bootcamp/
+
+#DARK_WORLD_IN
+
+Free Course Link:
+Part 1
+https://drive.google.com/drive/folders/1h61cgJCELuyHklTGG_PfEuJ3LiGbZys0?usp=sharing
+
+Part 2
+https://drive.google.com/drive/folders/1gt2-fMgI-vBBaLsjc7Fvnmoyt52CtuI0?usp=sharing
+
+☠ Credit  @HateHacker 💻
+♻️ Unmute And Share Post With Credit ♻️
+
+@TheStarkArmy
+
+🌀 PHOTOSHOP MASTERCLASS - MANIPULATION AND EDITING - 33 CHAPTERS 🌀
+
+~ Useful for Some People ❤️
+
+https://drive.google.com/drive/folders/1CPE5AtWswL1mA8S2xHOF0o7SYWwTjM7s
+
+☠ @HateHacker 💻
+♻️Share Our Channel and Support US♻️
+
+@TheStarkArmy
+
+🔘 Logo Design: From Beginner To Professional 🔘
+By #TheStarkArmy
+
+Learn to design professional logos without any experience in an easy and simple way.
+
+📍 What you'll learn 👇
+Learn to create Logos
+Learn to create brand logos
+
+📍 Requirements 👇
+Adobe Illustrator CC
+Basic knowledge in the Adobe illustrator CC software
+
+📍 Who this course is for: 👇
+▪️people that want to learn to create logos
+▪️people that want to learn to create brand logos
+
+Paid course link : https://www.udemy.com/course/logo-design20/
+
+Free course Link :
+https://mega.nz/folder/niAlGIQL#Y_tu6coimh552-VficQMew
+
+Credit @Starkthebot
+Copy With Credit❤️
+Contact for posting in your channel.
+
+🔘 DURGASOFT | PYTHON FULL COURSE! 122GB 🔘
+@TheStarkArmy
+
+👉PYTHON DEVELOPMENT 2021 - 145.86 GB folder on MEGA
+
+👉Download Link:- 
+https://mega.nz/folder/jxhlzBgI#bDeBZl7TxQvHW45PL394bw
+
+☠ @HateHacker 💻
+♻️Share Our Channel and Support US♻️
+
+🟥 DOC. LEAKS 
+
+🔸️Credit card 💳 
+🔸️ID-DL 
+🔸️Passport 
+🔸️Driver license 
+🔸️Vehicle Registration 
+and more.... 
+
+https://mega.nz/folder/pm41UA6A#v6dlfPRoWAooenpajyRrow
+
+By : ANSHU_XB
+☠ @HateHacker 💻
+♻️Share Our Channel and Support US♻️
+
+🔰The Ultimate 2021 Fullstack Web 
+Development Bootcamp🔰
+@TheStarkArmy
+
+Part-01
+https://drive.google.com/drive/folders/1n_bVmiHFZVGBKP-6bI3hvuqytxoykh_Q?usp=sharing
+
+Part-02
+https://drive.google.com/drive/folders/1dBzeFYWsM06idgjrw8x0lec_S1OH_kdb?usp=sharing
+
+☠ @HateHacker 💻
+♻️Share Our Channel and Support US♻️
+
+
+🔘The Complete Ethical Hacking Course (Learn Everything) 🔘
+@TheStarkArmy
+
+🎭Hacking Lab setup
+🎭Kali Linux 101
+🎭Anonymity Online
+🎭Dark Web
+🎭Network Pentesting
+🎭Wireless Attacks 
+🎭Post Connection Attacks
+🎭System Pentesting
+🎭Attacks On users
+🎭Social Engineering
+🎭Social Media Security
+🎭Beef
+🎭External Networks Attacks
+🎭Fake Game websites attack
+🎭Post Hacking Sessions
+🎭Hacker Methodology
+🎭Website Reconnaissance
+🎭Website Pentesting
+🎭SQL 101
+🎭SQL Injection
+🎭Website Pentesting tools
+🎭Ethical Hacking Certifications
+🎭Python For Ethical Hacking
+🎭Python Data type & Structure
+🎭Control Statements & Loops
+🎭Essentials
+🎭Functions
+🎭Object Oriented Programming
+🎭Modules
+🎭Mac Changer
+🎭Network Scanner
+🎭Man In the Middle
+🎭Packet Listener
+🎭Keylogger
+🎭Backdoor
+🎭Packaging & Malicious files
+🎭Closing & Ethical Hacker's Handbook And many More things
+
+🟥  Size: 9.07 GB  🟥
+
+https://mega.nz/folder/ppQCVbgL#u8wcVDSceGNi3qr6WlSBjA
+
+☠ @HateHacker 💻
+♻️Share Our Channel and Support US♻️
+
+@TheStarkArmy
+
+Cryptonary - Cryptocurrency Course
+
+Chapter 1 – Breaking Down The Cryptocurrency Market
+Part 1 – Introduction to Cryptonary
+Part 2 – Introduction To Cryptocurrencies
+Part 3 – Breaking Down Blockchain
+Part 4 – Mining
+Part 5 – Hard Forks
+Part 6 – Soft Forks
+Part 7 – Crypto vs Stocks and Forex
+Part 8 – Altcoins
+Part 9 – Bitcoin vs Gold
+Part 10 – Bitcoins Market Correlation
+
+Chapter 2 – The Investors Edge
+Part 1 – Risk v Reward
+Part 2 – Bettering Yourself
+Part 3 – Tortoise vs Hare Theory
+Part 4 – Dollar Cost Averaging
+Part 5 – Profit Taking Strategy
+Part 6 – Re-Investing To Maximise Gains
+Part 7 – Circulating Supply Secrets
+Part 8 – ICO’s
+Part 9 – Market Swings
+Part 10 – Weekends
+Part 10 – (BONUS) – BTC Profit Strategy
+
+Chapter 3 – A New Perspective Of Fundamental & Technical Analysis
+Part 1 – Setting Up
+Part 2 – Difference From Other Markets
+Part 3 – Top Down Analysis
+Part 4 – Countertrends and Trendlines
+Part 5 – Fibonacci
+Part 6 – Market Impacting News
+Part 7 – Putting It All Together
+Part 8 – (BONUS) Plotting Range Zones
+Part 9 – (BONUS) Moving Averages
+Part 10 – (BONUS) – The Crypto Construct
+ 
+Chapter 4 – Mastering Cryptocurrency Platforms
+Part 1 – Kraken Home Page
+Part 2 – Verification
+Part 3 – 2 Factor
+Part 4 – Deposits
+Part 5 – Withdrawals
+Part 6 – Bypassing The Banks
+Part 7 – Simple Orders
+Part 8 – Intermediate Orders
+Part 9 – Advanced Orders
+Part 10 – Advanced Charting Tools
+Part 11 – Buy and Sell Walls
+Part 12 – History
+Part 13 – Altcoins – Bittrex
+Part 14 – Altcoins – Bitfinex
+Part 15 – Bitfinex Fund Management
+Part 16 – (BONUS) Blockfolio
+
+Chapter 5 – Advanced Cryptocurrency Protection
+Part 1 – Cold Storage
+Part 2 – Hardware Wallets
+Part 3 – Updating Firmware
+Part 4 – Sending Crypto
+Part 5 – Receiving Crypto
+
+https://mega.nz/folder/6GwzWDyI#S5mJK_DyXcUZrXrShqzqdA
+
+☠ @HateHacker 💻
+♻️Share Our Channel and Support US♻️
+
+
+@TheStarkArmy
+
+🔰Beginning Ethical Hacking With Python🔰
+
+Prologue – Hacker’s Goal
+Part I
+Chapter 1: Legal Side of Hacking
+Chapter 2: Hacking Environment
+Chapter 3: Installing Virtual Box
+Chapter 4: Installing Kali Linux and Other Operating Systems on VB
+Chapter 5: Linux Terminal, Basic Commands
+Part II
+Chapter 6: Python 3 and Ethical Hacking
+Chapter 7: Python Environment
+Chapter 8: General Syntaxes
+Chapter 9: Variables, Objects and Values
+Chapter 10: Conditionals
+Chapter 11: Loops
+Chapter 12: Regular Expressions
+Chapter 13: Exceptions, Catching Errors
+Chapter 14: Functions
+Chapter 15: Classes
+Chapter 16: String Methods
+Chapter 17: File Input And Output
+Chapter 18: Containers
+Chapter 19: Database
+Chapter 20: Module
+Chapter 21: Debugging, Unittest Module
+Chapter 22: Socket and Networking
+Chapter 23: Importing Nmap Module
+Chapter 24: Building an Nmap Network Scanner
+Part III
+Chapter 25: Protect Anonymity on the Internet
+Chapter 26: Dark Web and Tor
+Chapter 27: Proxy Chains
+Chapter 28: Virtual Private Network or VPN
+Chapter 29: MAC Address
+
+🖇️ Link  : https://anonfiles.com/Fcr6J8Cdu4/Beginning_Ethical_Hacking_with_Python_pdf
+
+☠ @HateHacker 💻
+♻️Share Our Channel and Support US♻️
+
 
 ​🔰PENTESTER ACADEMY COURSE COLLECTION🔰
 
