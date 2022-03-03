@@ -2,7 +2,175 @@
 
 Video Belajar Coding Dan Hacking
 
+@TheStarkArmy
 
+⭐️ ALL-IN-ONE HACKING TOOL FOR HACKERS ADVANCED TOOLS AT ONE PLACE ⭐️
+
+Hacking tool Menu
+
+- Anonymously Hiding Tools
+- Information gathering tools
+- Wordlist Generator
+- Wireless attack tools
+- SQL Injection Tools
+- Phishing attack tools
+- Web Attack tools
+- Post exploitation tools
+- Forensic tools
+- Payload creation tools
+- Exploit framework
+- Reverse engineering tools
+- DDOS Attack Tools
+- Remote Administrator Tools (RAT)
+- XSS Attack Tools
+- Steganograhy tools
+- Other tools
+- SocialMedia Bruteforce
+- Android Hacking tools
+- IDN Homograph Attack
+- Email Verify tools
+- Hash cracking tools
+- Wifi Deauthenticate
+- SocialMedia Finder
+- Payload Injector
+- Web crawling
+- Mix tools
+
+Link : https://bit.ly/3t3lcJ6
+
+Make admin for posting these content in your channel
+@Mr_Neophyte
+
+☠ @HateHacker 💻
+♻️Share Our Channel and Support US♻️
+
+🔰 Website Hacking and Bug Bounty Course 🔰
+
+Size: 900MB
+
+📌Link: 
+https://drive.google.com/file/d/1vNZYBDApj28EKlIeK1wEjiS6Am75K5jr/view
+
+➖ @Anonymous4Bhai ➖
+
+🔰Advance Social Engineering Hindi Course 🔰
+
+
+✅ Category :
+
+      ◾️01Course Requirement
+      ◾️02 Setting Up Hacking Lab
+      ◾️03 What Is Social Engineering
+      ◾️04 Gathering Information
+      ◾️05 Phshing
+      ◾️06 Hack Computer
+      ◾️07 Hack Android
+      ◾️08 Dangerous Computer Virus Check 
+      ◾️09 Tools
+      
+
+🖥 Video Language :- Urdu / Hindi 
+📦 Zip Size :- 371 MB
+💸 Our Price:- Free ❤️
+🔒 Password :- onlinehacking.in
+ 
+
+🔷 This Course Download and Online Video Play Option Available
+
+
+⭕️ Link :- https://tool.onlinehacking.xyz/Advance-Social-Engineering-Hindi
+
+➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖
+
+🔥 @OnlineHacking 🔥
+
+🔻Share Your Friends 🔺
+
+🔰HOW HACKERS CREATE UNDETECTABLE MALWARE AND VIRUSES PAID COURSES LEAKED🔰
+
+🔗Link :- https://mega.nz/folder/5V4R3QyC#3NaPApDjgZzBbaum-EeLSg
+
+➖ @Anonymous4Bhai ➖
+
+🔰HOW HACKERS CREATE UNDETECTABLE MALWARE AND VIRUSES PAID COURSES LEAKED🔰
+
+🔗Link :- https://mega.nz/folder/5V4R3QyC#3NaPApDjgZzBbaum-EeLSg
+
+➖ @Anonymous4Bhai ➖
+
+🌟 Cybrary - Advanced Penetration Testing Course 
+
+The Advanced Penetration Testing course teaches the cyber attack lifecycle from the perspective of an adversary. Become more familiar with the most widely used penetration-testing tools, manipulate network traffic, and perform web application attacks such as cross-site scripting and SQL injection.
+ 
+🔗 Link :- 
+https://mega.nz/folder/3TRG2IiK#cYUfjdBRz4FlsfZFedx4NA
+
+🔰HOW HACKERS CREATE UNDETECTABLE MALWARE AND VIRUSES PAID COURSES LEAKED🔰
+
+🔗Link :- https://mega.nz/folder/5V4R3QyC#3NaPApDjgZzBbaum-EeLSg
+
+➖ @Anonymous4Bhai ➖
+
+🔰MEGA INSTAGRAM HACKPACK🔰
+
+⭕Hack Instagram account with fake followers technique (Video Tutorial Leaked)
+
+⭕Hack Instagram using Kali Linux(Video Tutorial)
+
+⭕Hack Instagram Using Termux (Video Tutorial) 
+
+⭕The Complete Security And Hacking  On Instagram Advanced Course
+
+⭕How to Hack Instagram using bruteforce method
+
+⭕Hack Instagram with best working methods
+
+⭕Hijack Instagram method
+
+⭕Instagram Hacking script with bruteforce attacking using termux
+
+⭕Instagram Hacking using fake login page by phishing method
+
+⭕Instagram Hacking method using termux tools
+
+⭕Instagram verification method
+
+⭕Instagram Xtreme Mod Apk 2020 Updated Apk
+
+⭕Instagram Black Mod Apk
+
+⭕Instagram Xtreme Black Mod Apk Pro
+
+⭕Anti Revoke Messages Apk(Get All Deleted Messages on Instagram)
+
+⭕Instagram Hypervote Terminal
+
+⭕Method toTrack location of a person chatting on Instagram method
+
+⭕Method to Get a verified badge on Instagram
+
+⭕Method To Get Delete Instagram Search History And Recover  it Back
+
+⭕Top 10 Instagram Free likes and followers Sites
+
+⭕Instagram BOT Gain Followers With Autofollow like and Unfollow
+
+⭕Instagram Followers Course Worth1200$
+
+🔗Link :- https://www.mediafire.com/file/uzu562fkd5mwk4z/MEGA_INSTAGRAM_HACKPACK.zip/file
+
+➖ @Anonymous4Bhai ➖
+
+🔰 Website Hacking and Bug Bounty Course 🔰
+
+Size: 900MB
+
+📌Link: 
+https://drive.google.com/file/d/1vNZYBDApj28EKlIeK1wEjiS6Am75K5jr/view
+
+➖➖ TROJAN HUNTERS ➖➖
+
+https://mega.nz/folder/1FI0WDTQ#OImJCxJ1Ze6aHBkGzqYWZw
 
 
 🤖 BOTNET STUFF
