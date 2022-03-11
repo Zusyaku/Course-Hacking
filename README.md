@@ -2,6 +2,277 @@
 
 Video Belajar Coding Dan Hacking
 
+
+🔰The Complete Ethical Hacking Course🔰
+
+◾️ Hacking Lab setup
+◾️ Kali Linux 101
+◾️ Anonymity Online
+◾️ Dark Web
+◾️ Network Pentesting
+◾️ Wireless Attacks 
+◾️ Post Connection Attacks
+◾️ System Pentesting
+◾️ Attacks On users
+◾️ Social Engineering
+◾️ Social Media Security
+◾️ Beef
+◾️ External Networks Attacks
+◾️ Fake Game websites attack
+◾️ Post Hacking Sessions
+◾️ Hacker Methodology
+◾️ Website Reconnaissance
+◾️ Website Pentesting
+◾️ SQL 101
+◾️ SQL Injection
+◾️ Website Pentesting tools
+◾️ Ethical Hacking Certifications
+◾️ Python For Ethical Hacking
+◾️ Python Data type & Structure
+◾️ Control Statements & Loops
+◾️ Essentials
+◾️ Functions
+◾️ Object Oriented Programming
+◾️ Modules
+◾️ Mac Changer
+◾️ Network Scanner
+◾️ Man In the Middle
+◾️ Packet Listener
+◾️ Keylogger
+◾️ Backdoor
+◾️ Packaging & Malicious files
+◾️ Closing & Ethical Hacker's Handbook And many More things
+
+⚠️People are Sell For : 66.26$ (5000₹) [Free In Our Channel]⚠️
+
+📥 Download Link:
+https://mega.nz/folder/WvIlFCLQ#KHWbWS4Ez57R3jCdpYdREw
+
+TORJAN HUNTERS
+
+🔥Complete Carding Course With Tools🔥BY
+ @SoUmYaJiT_SJ
+
+This is the best and paid carding course with private stuffs like tools and all! We are providing it for free so Download before it gets expire.
+
+Download DRIVE LINK 🔗🖇️https://drive.google.com/drive/mobile/folders/1MWxHQKO5EL8DkejsHk137YXLAWLGDaie
+
+Share Everywhere with cradit
+
+❗️ Red Teaming Course ❗️
+🎩Active Directory Pentesting With Kali Linux🎩
+
+🔖 Description:
+Active Directory Pretesting is designed to provide security professionals to understand, analyse and practice threats and attacks in a modern Active Directory environment. The course is beginner-friendly and comes with a walkthrough videos course and all documents with all the commands executed in the videos.
+
+🍀 What you'll learn:
+ 💥 How to Use Metasploit
+ 💥 How to Use Empire
+ 💥 How to Use Evil-WinRM
+ 💥 How to Use CrackMapExec
+ 💥 How to Exploit Active Directory
+ 💥 How to Do Active Directory Enumeration
+ 💥 How to do Lateral Movement
+ 💥 Active Directory Post Exploitation
+ 💥 Active Directory Domain Privilege Escalation
+ 💥 Active Directory Persistence Attacks
+ 💥 How to use Kali Linux to hack Active Directory
+ 💥 How to use Nmap to Enumerate Servers
+ 💥 How to exploit EternalBlue
+
+🌎 Size: 7.15GB
+📁 FileType: 7z
+
+🔗 Link:
+https://mega.nz/folder/9E4zDSAK#qpO_t84aBYReOLaWhSPGww
+
+POST BY❤ 💻 @SoUmYaJiT_SJ 📫 
+Enjoy 👍❤️
+
+🔰 Hacking Books For The Hackers 🔰
+
+🌀 This Is The Collection Of The Most Requested Hacking Books And We're Providing It For FREE.
+
+🔅 Worth - 72$ [ GIVING FREE FOR YOU ]
+
+📎Link :- https://mega.nz/folder/SlhihQKb#0ggUkIVF4bZcug2Ms2Wu1g
+
+🔺 Unmute And Support Us 🔻
+🧿POST BY🫂 ❤@SoUmYaJiT_SJ❤
+
+​🔰 Rᴇᴠᴇʀsᴇ Eɴɢɪɴᴇᴇʀɪɴɢ Cᴏᴜʀsᴇ Bʏ DᴇᴅSᴇᴄ 🔰
+
+
+✅ Category :
+
+      ◾️01 Introduction To Reverse Engineering
+      ◾️02 Introduction To Assembly Language 
+      ◾️03 Learn About Ollydbg
+      ◾️04 Complete Basic Concept Of RE 
+      ◾️05 Packer Detectors & Protection 
+      ◾️06 Change Tittle & Information Of Any Software 
+      ◾️07 IDM Complete Cracking 
+      ◾️08 Make Your Own Keygen 
+      ◾️09 Cracking PowerISO 
+      ◾️10 Video Editor Filmora Cracking 
+      ◾️11 PDF Password Remover Cracking 
+      ◾️12 Dot Net Software Analyzing 
+      ◾️13 Do Net Cracking Using dnSpy
+      ◾️14 Calculating Serial Length In Ollydbg 
+      ◾️15 Learn About UPX Packing 
+      ◾️16 Unpacking Packers Of EXE 
+      ◾️17 Cracking Software in Xdbg 
+      ◾️18 Tempory Patching Concept 
+      ◾️19 Sublime Text Editor Cracking
+      ◾️20 Dotnet Online Cracking
+      ◾️Extra Videos 
+      ◾️Files For Practice
+      
+
+🖥 Video Language :- Urdu / Hindi 
+📦 Zip Size :- 1.2GB
+💸 Our Price:- Free ❤️
+🔒 Password :- onlinehacking.in
+ 
+
+🔷 This Course Download and Online Video Play Option Available
+
+
+⭕️ Link :- https://tool.onlinehacking.xyz/Reverse-Engineering-Course
+
+➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖
+
+🔥 @OnlineHacking 🔥
+
+🔻Share Your Friends 🔺
+
+Leaked paid bug hunting bundle
+https://mega.nz/folder/DLwFnIoa#UWJRaLgk4FjcDtdqbOxHRg
+Happy learning!
+
+@TheStarkArmy
+​🔰PRACTICAL PHISHING COURSE : BY THEHACKERSSPACE🔰
+
+⚠️sᴇᴛ-ᴜᴘ ᴘʜɪsʜɪɴɢ sᴛʀᴜᴄᴛᴜʀᴇ
+⚠️ʟᴀᴜɴᴄʜ ʏᴏᴜʀ ᴄᴀᴍᴘᴀɪɢɴ.
+⚠️ʙʏᴘᴀss ᴍғᴀ.
+⚠️ᴇᴠᴀᴅᴇ sᴘᴀᴍ ғɪʟᴛᴇʀs.
+⚠️ᴄʀᴇᴅᴇɴᴛɪᴀʟ ᴄᴀᴘᴛᴜʀɪɴɢ.
+⚠️ᴘᴏsᴛ ᴇɴɢᴀɢᴇᴍᴇɴᴀᴄᴛɪᴠɪᴛɪᴇs
+⚠️ᴄᴏɴsɪᴅᴇʀᴀᴛɪᴏɴs ғᴏʀ ʙʟᴜᴇ ᴛᴇᴀᴍ.
+⚠️ᴀᴅᴠɪᴄᴇ ғʀᴏᴍ ʀᴇᴀʟ ᴘʜɪsʜɪɴɢ
+
+🔻L!NK : https://mega.nz/file/U5smASZC#cyvHUvu-HPh5gHwDJn5_Y0kGicFQ0kyaIPPZyOTPX-0
+
+☠ @HateHacker 💻
+♻️Share Our Channel and Support US♻️
+
+@TheStarkArmy
+💠Android Ethical Hacking Course 💠
+
+A well structured course that able to build a solid basic understanding of android pen testing and ethical hacking concepts for beginner
+⭐️Transfom your Android Device into an Advance Ethical Hacking Machine
+⭐️Instagram Hacking like pro ATTACKER and make people people aware of such an attack
+⭐️Facebook Hacking like pro ATTACKER and make people people aware of such an attack
+⭐️Any Social Media Hacking as PRO Attacker and make people people aware of such an attack
+⭐️Metasploit Framework
+⭐️Learn how to Use Termux from Scratch
+⭐️PORT Forwarding
+⭐️Clone any Website
+⭐️What is Shell ?
+⭐️BASH Scripting
+⭐️What is F-Droid and its Importance
+⭐️Package Management
+⭐️Learn various CLI commands and use it like a Pro Penetration Tester
+⭐️LAN Attack
+⭐️WAN Attack
+⭐️Learn how to make Persistent Payload
+⭐️Cyber Security Terminology
+⭐️Metasploit Architecture
+⭐️Phishing Attack
+⭐️Run Kali Linux in your Android Device without Root
+⭐️Vulnerability , Exploit , Payload
+⭐️Bind Shell and Reverse Shell
+⭐️PHP Programming
+⭐️Ways to Prevent Cyber Attacks
+⭐️Essential Tools of Encryption and Decryption
+⭐️Learn Encryption and Decryption
+⭐️How to access the Front Camera of the Victim
+⭐️Protect Your files with Passwords
+⭐️Installing PHP and Starting the Server
+⭐️Convert your Phishing Website into an Android App
+⭐️Wifi Password Cracking
+⭐️using of Hackers KeyBoard
+⭐️Social Engineering
+
+❤️‍🔥Course Link
+https://mega.nz/folder/svpm0JSS#BDZSgwDitVwupbo2T-Iw6Q
+
+Provided by its_me_kali
+☠ @HateHacker 💻
+♻️Share Our Channel and Support US♻️
+
+🔥2TB ARCHIVE OF MIXED PROGRAMMING COURSES - TONS OF KNOWLEDGE IN HERE✅🔥- - Contents (tags) -
+
+General Programming, CSS, Java, HTML, PHP, SQL, Node.js, Openstack, Powershell, Linux, AWS, Microsoft Azure implementations, Ruby, Gulp.js, GCP, Jenkins, Apache MySQL, Unity, Web Development and more...
+
+https://drive.google.com/drive/u/0/folders/1rE6r67r1vsDrVxvAd5StXWSNGgsMpH5r
+
+Note:✅ Always Open these links By copy paste on a browser ( Brave / IDM recommended ) 
+✅ Always Scan the files for viruses before executing any .EXE files
+
+Fraud Bible ✝️📖🔌💰💰 
+
+https://mega.nz/folder/cbQkGbbB#a-s9n7r7IOqCpO3217lh4g
+
+☣ All Python Courses ☣
+
+#dataleakbreach
+
+🔸Android-App-Development-Design-Pat🔸terns-Mobile-Architecture 🔸🔸Ethical-Hacking-Mobile-Devices-Platforms
+🔸Ethical-Hacking-System-Hacking
+🔸Ethical-Hacking-Website-Web-Application-Testing
+🔸jQuery-Essential-Training
+Learning-Functional-Programming-JavaScript
+🔸Learning-Linux-Shell-Scripting
+🔸PHP-MySQL-Essential-Training-1-Basics
+🔸Practical-Cybersecurity
+🔸Python-3-Essential-Training
+🔸Python-GUI-Development-Tkinter
+SEO Courses
+🔸SQL-Essential-Training
+🔸Troubleshooting-Your-Network-Wireshark
+🔸Hacking Tools Pack
+🔸Android Security and Exploitation for Pentesters
+🔸Javascript for Pentesters
+🔸Make your own Hacker Gadget
+🔸Python For Pentesters
+🔸Real World Pentesting
+🔸Scripting Wi-Fi Pentesting Tools in Python
+
+🔗Link :https://mega.nz/folder/TyhGnIiR#XlHwR6qa4cZ3Tl1bSm2-QA
+
+@TheStarkArmy
+
+🔰 MONEY MAKING TUTORIALS & ADVANCED DARKWEB HACKING 🔰
+
+CONTENT:
+▪️Hacking into computer
+▪️Hacking streams
+▪️Certified ethical hacker
+▪️Visa hack
+▪️ Ethical Hacking student guide
+
+✔️Link: https://mega.nz/#F!95tRjaTB!3uZKoaAgpE68lzFEo6GRTA!httVDA7D
+
+Posted by:@Noob_Morningstar
+
+💠#Pin & #Unmute us for More 💠
+☠ @HateHacker 💻
+♻️Share Our Channel and Support US♻️
+
+
+
 @TheStarkArmy
 
 ⭐️ ALL-IN-ONE HACKING TOOL FOR HACKERS ADVANCED TOOLS AT ONE PLACE ⭐️
