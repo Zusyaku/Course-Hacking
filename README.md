@@ -3,6 +3,124 @@
 Video Belajar Coding Dan Hacking
 
 
+@TheStarkArmy
+
+🔰Mega Leak ~ 22 GB Passwords and Cookies (Paypal,Amazon,Blockchain,Netflix,Etc..) 🔰
+
+📊 File link: https://mega.nz/file/35pxlQ4R#qcKy3XcUY7I3FLFMS7KwdYTWFpOQXcPrvSelT9Fqmw8
+🙊 Password: 1234
+
+Posted by: @Noob_Morningstar
+(Make me admin in your channel to get such contents)
+☠ @HateHacker 💻
+💬 Pin & Unmute us for more 💬
+
+🔰The Complete Ethical Hacking Course🔰
+
+◾️ Hacking Lab setup
+◾️ Kali Linux 101
+◾️ Anonymity Online
+◾️ Dark Web
+◾️ Network Pentesting
+◾️ Wireless Attacks 
+◾️ Post Connection Attacks
+◾️ System Pentesting
+◾️ Attacks On users
+◾️ Social Engineering
+◾️ Social Media Security
+◾️ Beef
+◾️ External Networks Attacks
+◾️ Fake Game websites attack
+◾️ Post Hacking Sessions
+◾️ Hacker Methodology
+◾️ Website Reconnaissance
+◾️ Website Pentesting
+◾️ SQL 101
+◾️ SQL Injection
+◾️ Website Pentesting tools
+◾️ Ethical Hacking Certifications
+◾️ Python For Ethical Hacking
+◾️ Python Data type & Structure
+◾️ Control Statements & Loops
+◾️ Essentials
+◾️ Functions
+◾️ Object Oriented Programming
+◾️ Modules
+◾️ Mac Changer
+◾️ Network Scanner
+◾️ Man In the Middle
+◾️ Packet Listener
+◾️ Keylogger
+◾️ Backdoor
+◾️ Packaging & Malicious files
+◾️ Closing & Ethical Hacker's Handbook And many More things
+
+⚠️People are Sell For : 66.26$ (5000₹) [Free In Our Channel]⚠️
+
+📥 Download Link:
+https://mega.nz/folder/WvIlFCLQ#KHWbWS4Ez57R3jCdpYdREw
+
+TORJAN HUNTERS
+
+@TheStarkArmy
+
+SIM CLONING COURSE| DEDSEC
+
+COURSE LINK: https://www.dedseec.com/product/sim-cloning-course-make-duplicate-sims/
+
+📌 TELEGRM FILE FORMAT: 
+
+📌MEGA LINK:
+https://mega.nz/file/ZchnECxL#xjZic5-NNGm8moIBnaXUAevhS6375F2GcdF8Jgoah04
+
+꧁▪️@HateHacker࿐
+Unmute Notification & Share Channel For More 💬🤩
+
+@TheStarkArmy
+
+💰 EARN THROUGH FACEBOOK ADS - PAID COURSE COLLECTION 💰
+
+LINK -
+https://mega.nz/folder/v35BkYCT#jqVlGAMOyDhrd8sraUAg0w
+
+🥷 SHARED BY : @crevilBot
+
+꧁▪️@HateHacker࿐
+🔔Unmute Notification & Share Channel For More ✅
+
+@TheStarkArmy
+
+🔥 BASICS OF ETHICAL HACKING CORE TRAINING 2022 🔥
+
+🔰TOPICS
+1. The Truth About Living in a Technology Based World
+2. Overview of the CEH Certification Program
+3. How to Build a Lab to Hack Safely
+4. Installing and Configuring Your Windows Server VMs
+5. Installing and Configuring Your Desktop VMs
+6. Information Security Overview
+7. Security Threats and Attack Vectors
+8. Hacking Concepts
+9. Hacking Phases
+10. Attack Types
+11. Information Security Controls
+12. How to Prepare for the Certified Ethical Hacker Exam
+
+LINK:- https://mega.nz/folder/J7ARwAiB#yGy3LmBUVuUnCL6PWsX3mA
+
+🥷 @crevilBot
+
+꧁▪️@HateHacker࿐
+🔔Unmute Notification & Share Channel For More ✅
+
+Bluehat - IL 2022
+https://drive.google.com/file/d/1VtFdaHty9hzIfnsJ_CDM1jzqapLG56q5/view?usp=sharing
+
+Leaked paid bug hunting bundle
+https://mega.nz/folder/DLwFnIoa#UWJRaLgk4FjcDtdqbOxHRg
+Happy learning!
+
+
 🔰The Complete Ethical Hacking Course🔰
 
 ◾️ Hacking Lab setup
