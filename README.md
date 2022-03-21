@@ -3,6 +3,172 @@
 Video Belajar Coding Dan Hacking
 
 
+Reverse Engineering Malware Analysis Tools and Techniques
+
+FOR610 v2021 Video
+
+https://mega.nz/folder/0Q10yDjC#oXOsLTjQ4PI6sNC9gvsR4A
+
+Note: Educational purpose only, we are not responsible for any misuse of the contents & damage done by you.
+
+SEC588 - Cloud Penetration Testing
+
+SEC588 v2020 PDF
+
+https://mega.nz/folder/x7IA0byb#EwcwEwGncjkgDlxWv2fg7Q
+
+SEC588 v2020 USB
+
+https://mega.nz/folder/wvRgGL7C#m8YF7SSqgkgnYY5RSy-Vyw
+
+SEC588 v2020 Video
+
+https://mega.nz/folder/RyRg3JRY#FfiZS_VPnoA2DFpj9dtBYw
+
+EC-Council - Identity and Access Management, by Simon Salmon
+
+https://mega.nz/folder/xB0n0azQ#MkcNX-PDSVGfvgAnOvHDZg
+
+EC-Council - Securing Your Network from Attacks, by Jeff Minakata
+
+https://mega.nz/folder/odkTFAYQ#cILsm3QuPNlEEiDbSmg3wg
+
+Surviving Digital Forensics
+
+https://mega.nz/folder/mjwECYYS#dd1it1Fb1DiuR8Q7QekbRA
+
+Pentester Academy
+
+https://mega.nz/folder/vaQHlIQb#i8B7gVZmR46O2FC67U15UA/folder/rXIBjAjS
+
+Elearn Security
+
+https://mega.nz/folder/C55QjSxa#FmmJ_YK6XtvRargobLZhdw/folder/rtBSxQgJ
+
+PentesterAcademy - Python For Pentesters, by Vivek Ramachandran
+
+https://mega.nz/folder/q9kmnKaJ#qB9r6KJMdb6nCO9iOvtEmA
+
+Packt - Hands-On Azure Digital Twins
+EPUB
+https://mega.nz/file/hEtmDCYS#Fdmp1m_I5OmLvdt_T6OR5JnN4r14cBGX_5c7gWW--Ow
+
+PDF
+https://mega.nz/file/oJkSVYSC#xy4D6_zzsELLJ8gWZjKXMQI4SSoidC4hZ_ctl-yHKQk
+
+ZeoroPointSecurity - Red Team Ops [CRTO]
+
+https://mega.nz/folder/kINjgILL#CYouUd6lMPtyR0FJPwnfyQ
+
+GeeksForGeeks - Python Programming Foundation - Self Paced
+
+https://mega.nz/folder/4Q1FEIqA#EeNJxkMCqiPpjC1Fu659-g
+
+Packt - CompTIA CASP+ CAS-004 Certification Guide
+
+EPUB
+https://mega.nz/file/lJ9HVQaJ#vUlLSUReKUuCbjgcoqBkSsWCIOvaIyQxAcNo8PkfSG8
+
+PDF
+https://mega.nz/file/oJ8HVSwR#SMisKuWsDeuQaKDVJIORwdY7JAQaFU_FB_ncZwsZeTA
+
+Huge Hacking Tools And Course Collection For free 👇(161.26 GB)
+
+🔻Download Link 🔗:
+
+https://mega.nz/folder/BX5SBKrY#Qw4AcfRRYMwheNDdrRlkkw
+
+🔰 share and support us 🔰
+
+Cybrary - MITRE ATT&CK Defender™ (MAD) ATT&CK® Cyber Threat Intelligence Certification Training, by Adam Pennington
+
+https://mega.nz/folder/k8tgEALL#vjb8b1jZYC7W5GuvQhymLQ
+
+Cybrary - MITRE ATT&CK Defender™ (MAD) ATT&CK® Fundamentals Badge Training, by Jamie Williams
+
+https://mega.nz/folder/g81G3STb#vlKkVO-JTSS90fE6kdVdxQ
+
+Cybrary - MITRE ATT&CK Defender™ (MAD) ATT&CK® SOC Assessments Certification Training, by Dr. Clem Skorupka
+
+https://mega.nz/folder/1s9AHQqJ#vCHmuI7yxUwep9TmNUse7w
+
+Packt - Microsoft Security Operations Analyst Exam Ref SC-200 Certification Guide
+
+EPUB
+https://mega.nz/file/7v5WgAAD#9u6aPCBvFYndRHc_RpSjaHY6tbX_peo6QKJ-jf-dsdg
+
+PDF
+https://mega.nz/file/W6YAmRDa#F9wuqqGm3eP9C4lnuFVuxcVnetrBtSNtmFIhUz7nZU8
+
+@TheStarkArmy
+
+C++ language Complete Course 🔥
+
+Download link :
+https://drive.google.com/drive/mobile/folders/1FwSPW4RnG7Rzk3e-ISiS6JZ9dpVvF4We
+
+
+🔰 Ethical Hacking - Capture the Flag Walkthroughs - V1 & V2 🔰
+
+Video And Lab Walkthroughs For Capture The Flag Exercises That Will Help Strengthen Your Ethical Hacking Skills
+
+🌀 Download Link [Free] :
+https://mega.nz/folder/l7B00TyL#a3mH425zcaBuILkWJ5h3FQ
+
+
+📱 Udemy - SQL & DATA DESIGN 📱
+
+https://mega.nz/folder/ijxhhASB#1DmHWKPfh1C95SdC7HsmVQ
+
+꧁▪️@HateHacker࿐
+🔔Unmute Notification & Share Channel For More ✅
+
+@TheStarkArmy
+
+🔵🔵About Penetration Testing 🟢🟢
+
+Penetration testing is also known as pen testing or ethical hacking. It describes the intentional launching of simulated cyberattacks that seek out exploitable vulnerabilities in computer systems, networks, websites, and applications
+
+❤️‍🔥Following are the important modules of pentesting −
+
+⬛️Black Box Penetration Testing
+
+⬜️White Box Penetration Testing
+
+🔲Grey Box Penetration Testing
+
+❤️‍🔥Types 
+
+🍎External Network Penetration Testing. 
+
+🍎Internal Network Penetration Testing.
+
+🍎Social Engineering Testing. 
+
+🍎Physical Penetration Testing. 
+
+🍎Wireless Penetration Testing. 
+
+🍎Application Penetration Testing.
+
+❤️‍🔥Basic Course 
+https://mega.nz/folder/FMI3RaYJ#5DBQZm20ztBcVW5FNJ4Jug
+
+❤️‍🔥Pentest Handbook: SQL Injection To Shell Uploading
+https://www.udemy.com/course/pentest-handbook-sql-injection-to-shell-uploading/
+
+🟢Pentesting Lab Preparation
+https://www.udemy.com/course/learn-how-to-build-own-virtual-penetration-testing-lab/
+
+By its_me_kali
+
+꧁▪️@HateHacker࿐
+🔔Unmute Notification & Share Channel For More ✅
+
+
+https://drive.google.com/drive/folders/1-aTqtcnj9QAaHZbbFhBkaF69UtHHn2o0
+
+
 @TheStarkArmy
 
 🔰Mega Leak ~ 22 GB Passwords and Cookies (Paypal,Amazon,Blockchain,Netflix,Etc..) 🔰
