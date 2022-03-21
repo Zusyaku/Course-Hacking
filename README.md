@@ -2,6 +2,8 @@
 
 Video Belajar Coding Dan Hacking
 
+https://drive.google.com/drive/folders/1suzYeDQES2asw0OyM9W0G5-v7FlMAygr
+
 
 Reverse Engineering Malware Analysis Tools and Techniques
 
