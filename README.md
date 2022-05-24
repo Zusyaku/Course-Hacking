@@ -5,8 +5,166 @@ Video Belajar Coding Dan Hacking
 
 onlinehacking.in
 @OnlineHacking
-OnlineHacking
-OnlineHacKing
+
+🔥WHATSAPP HACKING BY USING GIF FILE 🔥
+
+https://mega.nz/folder/U8MDQY7B#Z_4cjgjqsHDdoGL6weV2yQ
+
+Hacking Certifications PDFs 
+ https://mega.nz/folder/Yx8gzK6L#e50l5V9aWYSkYXvOZntiFg
+    .             Sharing is Caring              .
+
+Hacking Certifications PDFs 
+ https://mega.nz/folder/Yx8gzK6L#e50l5V9aWYSkYXvOZntiFg
+    .             Sharing is Caring              .
+
+The Complete Ethical Hacking Course 
+
+https://mega.nz/folder/o49xxAqJ#08QrnrasWH3uSQgFx-99QQ
+
+Sharing is Caring
+
+Instagram Hacking 
+
+https://mega.nz/folder/1pdQyYiZ#_sXiX0d_PJdhjCXG6NwLqQ
+
+Station X - The Complete Cyber Security Course - Volumes 1, 2, 3 & 4
+
+https://mega.nz/folder/A9FxXTBA#vmTOLh-5evnmD2fLNdQY4w
+
+👽 Sharing is Caring
+
+Blackhat Hacking Course in Urdu hindi
+
+includes :- 
+▫️Advance Account Cracking 
+▫️Advance Android Hacking 
+▫️ATM Hacking 
+▫️Carding Full Course
+▫️Network Hacking Full Course 
+▫️PC Hacking 
+▫️Spamming Full Course 
+
+ Price :- 3000$    💞FREE
+
+https://mega.nz/folder/4l0yzYbD#2Tvs4Gyk4CzYsW1DaDaP1Q
+
+Sharing is Caring  💞
+
+Udemy - Ethical Hacking Tor, Proxy Chains and VPN, Beginner to Pro!
+
+What Will I Learn?
+Ethical Hacking: Tor, Proxy Chains and VPN, Beginner to Pro! Course
+
+-Students will have enough knowledge about important tools for anonymity like Tor, Proxy chains and VPN.
+-Students will be able to create proxy chains for safe and anonymous browsing.
+-Students will have enough knowledge about the VPN that is necessary for ethical hacking.
+-Students will know the dark web and tor browser.
+
+https://mega.nz/folder/R0kiGApL#8pdRoH8yfAryY-CmOJI3PA
+
+Sharing is Caring  👽
+
+🔥▫️BOOKS FOR HACKING 
+https://mega.nz/folder/kw1WHDba#Fdb_mN73vOIUPBW2jYllWQ
+
+Sharing is Caring 💞
+
+☣️ Mobile Security: Reverse Engineer Android Apps From Scratch ☣️
+
+Learn Android reverse engineering in less than 4 hours
+
+TOPICS :
+🔶Course prerequisites
+🔸Intro to Android
+🔶Course/Lab setup
+🔸Developing a basic Android App
+🔶Analysing Android Apps
+🔸Case study: Analyzing real ransomware and developing a decryption tool
+
+Course Content :-
+6 Sections • 46 Lectures • 3h 10m Duration
+Size - 1.38 GB
+
+🔗 Link : https://www.mediafire.com/file/hetfem9w3t4frpo/Mobile_Security_-_Reverse_Engineer_Android_Apps_From_Scratch.rar/file
+
+@TheStarkArmy
+
+🕯 Sites to practice programming and solve challenges to improve programming skills 🕯
+
+1️⃣ https://edabit.com
+2️⃣ https://codeforces.com
+3️⃣ https://www.codechef.com
+4️⃣ https://leetcode.com
+5️⃣ https://www.codewars.com
+6️⃣ http://www.pythonchallenge.com
+7️⃣ https://coderbyte.com
+8️⃣ https://www.codingame.com/start
+9️⃣ https://www.freecodecamp.org/learn
+
+ENJOY LEARNING 👍👍
+꧁▪️@HateHacker࿐
+🔔Unmute Notification & Share Channel For More ✅
+
+Merlin Holmes - $1K A Day Fast Track
+
+https://mega.nz/folder/B99BXLhY#c7RaHfITioszL4dDI73G0A
+
+Udacity - Data Science  [All Courses]
+
+https://mega.nz/folder/1o0GRTKT#JKbWzvwwO2LT-h9mZoovTA
+
+An Introduction to OWASP Top 10 Vulnerabilities
+
+https://mega.nz/folder/RxkCWBbC#Iio3ie_Tg2D-EgBz3C0IEA
+
+🔥Blackhat Videos Series
+
+Price :- 899$   💞Free
+
+https://mega.nz/folder/k5MDXBQD#16OffIi1DCOqZXEJaabdlw
+
+🔥Burp Suite Hacking course, Bug Bounty and Web Hacking
+
+https://mega.nz/folder/Io9SzBpS#nnvKJv0R7vHlwbVYivA4EA
+
+👽Complete Deep Web Course👽
+
+https://mega.nz/folder/Z5szVLDK#RugBixrFIVJ2H5OE3gbEUQ
+
+🔥 Sharing is Caring 💞
+
+🔹 CODING BLOCKS 🔹
+🔹 Full Stack Web Development Mastery Course 
+
+🔹 SIZE : 13 GB 
+
+🔹 Link : https://mega.nz/folder/GhhggITC#_FNzhyApvRF6LztQrtzzNQ
+
+🔹 Coding Blocks 🔹
+🔹 Algo ++ Data Structures and Algorithms 
+
+🔹 Size : 15.5 GB 
+
+🔹 Link : https://mega.nz/folder/SwwygYbI#2OEeVXK_gTjc8MAvYoOWQg
+
+🔹 CODING BLOCKS 🔹
+🏹 Different Programming Fundamental Courses for Beginners 🏹
+
+🔹 Consists of : 
+(i) C++ Fundamentals
+(ii) Java Fundamentals
+(iii) Python Fundamentals
+(iv) Kotlin Fundamentals
+
+🔹 SIZE : 8 GB +
+
+🔹 Link : https://mega.nz/folder/XUtCjKSQ#51Xb2ltwFkgfPs3XMMnjAw
+
+🍎 TechHacker Pre-Hacking Course by BITTEN TECH 🍎
+
+https://mega.nz/folder/PogzzRBZ#yr5tuJ3WkwwFc2BJeFkXoQ
+
 
 Bug Bounty Web Hacking
 https://drive.google.com/drive/folders/1iprpJbTytrMK3FBeoeAJ-B8CSxTXGomZ
