@@ -3,8 +3,944 @@
 Video Belajar Coding Dan Hacking
 
 
-onlinehacking.in
-@OnlineHacking
+CBT Nuggets - Ubuntu Linux Server Series Training Videos Course
+https://drive.google.com/open?id=1U-Ol3nix-jTJJ35-cCXalbPK41REBw3E
+
+CBT Nuggets - MCSA 70-410 Installing and Configuring Windows Server 2012 Training Video Course 
+https://drive.google.com/open?id=1kctByE_CMD38dsrXJoEuAUroZZOFZFiZ
+
+CBT Nuggets - MCSA 70-411 Administering Windows Server 2012 Video Training Course 
+https://drive.google.com/open?id=1eqOzbpy1AZBxFmF_A_lMlwW2iu8AvIYN
+
+CBT Nuggets - MCSA 70-412 Configuring Advanced Windows Server 2012 Services Video Course 
+https://drive.google.com/open?id=1TIywDWRKayVmU5vimoZwD1ZdXKVn7efQ
+
+CBT Nuggets - MCSA 70-741 Networking with Windows Server 2016 Training Video Course 
+https://drive.google.com/open?id=1C7rTylBpONb42Gjz_lbrJ4JNzl6wCE9C
+
+CBT Nuggets - MCSE 70-465 Learning Microsoft SQL Server 2012 Training Video Course 
+https://drive.google.com/open?id=1F20LIZAlhW0y7UUl3CJX5AflM8ZLa98R
+
+CBT Nuggets - MCSE 70-413 Designing & Implementing a Server Infrastructure Video Course 
+https://drive.google.com/open?id=15I_HP5tOV-gXn0gN03iqSTv1gnyMAJs8
+
+CBT Nuggets - MCSE 70-414 Implementing & Advanced Server Infrastructure Training Video Course 
+https://drive.google.com/open?id=1o7dTq4oSmgCXW35WEbTe63O-osvn1LjV
+
+CBT Nuggets - Juniper JNCIA-Junos JN0-102 Exam Video Training Course 
+https://drive.google.com/open?id=1Twx-_WgcRE7MlCMKlfLadx6HEh6agUrt
+
+CBT Nuggets - Cisco CCENT/CCNA 100-105 ICND1 Training Video Course 
+https://drive.google.com/open?id=1N-cNKE-9knq9eOZ9VrvZPbXLuG09zUUH
+
+CBT Nuggets - Cisco CCNA ICND2 200-105 Training Video Course 
+https://drive.google.com/open?id=1Nw60o0rbMDX9Xfq5u-pNWv7DwJgItou3
+
+CBT Nuggets - Cisco CCNA Security 210-260 Training Video Course 
+https://drive.google.com/open?id=1O8orZvgIFUfIF2ID2zvCfKoCpZecRNSU
+
+CBT Nuggets - Microsoft SharePoint 2016 Fundamentals Training Video Course 
+https://drive.google.com/open?id=1J7L9pUBx38-WvJfaQ97nHARlbBevX04d
+
+CBT Nuggets - CompTIA Network+ (N10-007) Exam Video Training Course 
+https://drive.google.com/open?id=1k2i6OjvKCsiVwlcBtQwaNdIuFmLkjqmM
+
+Linkedin Learning - Ubuntu Linux Desktop Training Video Course & Exercise Files 
+https://drive.google.com/open?id=1dST7kXuEnTV_AuW8aqw0H6538q9EPDSw
+
+CBT Nuggets - CompTIA Cloud Essentials (CLO-001) Training Video Course 
+https://drive.google.com/open?id=1Cb2IRbxoIHyc0BM8e0-6FRHRczBum6r9
+
+CBT Nuggets - Python Programming Training Video Course 
+https://drive.google.com/open?id=1rpYBKUQtTg2QPyGJRRxyxTVvZ--Ypeas
+
+CBT Nuggets - CCNP Security FIREWALL v2.0 642-618 Exam Video Training Course 
+https://drive.google.com/open?id=1X2CMXeN4_qdnTwxalobxawKadJ7sjSTg
+
+CBT Nuggets - AWS Certified SysOps Administrator Associate Level Training Video Course 
+https://drive.google.com/open?id=1D_ZLyt6cLhYC9xwLItEFi1cTOKEC05E9
+
+CBT Nuggets - Google Cloud Platform Fundamentals Training Video Course 
+https://drive.google.com/open?id=16IFrx-gY4JpKbEXy47coNSukeIgKXmzS
+
+CBT Nuggets - LPI Linux LPIC-1 102 and CompTIA Linux+ Training Video Course 
+https://drive.google.com/open?id=1C54GFIkme6FX8PxF-keSuhbArIvSqXkC
+
+CBT Nuggets - LPI Linux LPIC-1 101 and CompTIA Linux+ Training Video Course 
+https://drive.google.com/open?id=1uSmEhW8AOFGG1Kf_To41mdVEC0f8lDhI
+
+CBT Nuggets - Wireshark Training Video Course 
+https://drive.google.com/open?id=11u0MiHdNUmsnNmwVwKc2Jw_1pu8vSkzR
+
+CBT Nuggets - Microsoft 70-243 SCCM 2012R2 Training Video Course 
+https://drive.google.com/open?id=1gt-qUhWUT1d6NtNlbxQwx1NNwalsSxnI
+
+Udemy - Project Management Professional (PMP) 6th Edition Training Video Course 
+https://drive.google.com/open?id=1oyx53ruMmim4MYHNk-sbPcpm4ql3PeOv
+
+Udemy - Windows Server 2016 Administration & Infrastructure Training Video Course 
+https://drive.google.com/open?id=1FwxJx-ZyWCgMMrFrpLoYUpoQqjuXb5v9
+
+Ethical Hacking With Python, JavaScript and Kali Linux Training Video Course
+https://drive.google.com/open?id=1yimz3tXK-ccv3jU-A3di3uIlQsLzH52N
+
+Udemy - Cloud Computing with Microsoft Azure Training Video Course
+https://drive.google.com/open?id=1bqbVLSQoPPv9CO2Ux0_qTwnDC5dYY3rn
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+
+🔥 @OnlineHacking 🔥
+
+🔻Share Your Friends 🔻
+
+🔰Biggest Hack Pack🔰
+
+◾️ Free 1 Month Netflix Trick [You Can Create Unlimited Account]
+◾️ Free Netflix using PayPal [Video]
+◾️Free Amazon Prime Trick [Video]
+◾️ Hotstar Cracking Trick [Video]
+◾️ How To Bypass Link Shortner
+◾️ Instagram Liker
+◾️ Snow's YouTube Bot
+◾️ YouTube View Booster Bot
+◾️ YouTube Blazzer
+◾️ 50 Android Hacks
+◾️ Amazon Gift Cārds
+Paypal Method
+◾️ Ebay Method
+◾️ Free Amazon Gift Cārd Method
+◾️ Free Pizza Method
+◾️ Flipkart Cārding Tutorial
+◾️ How To Get Fresh Valid Proxy List For Cracking
+◾️ How To Get A Free Master Card
+◾️ How To Get Referrals
+◾️ Bypass Gmail Mobile Verification Trick
+◾️ Bypass Android Pattern Lock Using ADB
+◾️ Get Refund Of GiftCard
+◾️ Facebook Hacking Ebook
+◾️ Get Things From Ebay For Free
+◾️ SEO Secrets
+◾️ Guide To Make Money Online
+◾️ Hack Hotmail
+◾️ Hack Gmail
+◾️ 4 Hacking Methods
+◾️ CC Generator
+◾️ CC Checker
+◾️ Crack WEP in Linux
+◾️ Get Massive YouTube Traffic
+◾️ Get Passes To Pornsites
+◾️ Hack WEP WiFi Password
+◾️ Kick Someone Of A Wireless Network
+◾️ Make $1000's A Week With Torrents
+◾️ Make A Phisher For A Website [Facebook/Instragram/Etc]
+◾️ Make Easy Money As An eBay Affiliate
+◾️ Make Multiple Gmail Accounts With Only 1 Account
+◾️ How To Make Mozilla 30 Times Faster
+◾️ USA Whatsapp Number Trick
+◾️ Collection Of Rare Hacking Ebooks
+◾️ Starbucks Method
+◾️ How To Call Someone From His Own Number [Caller Id Spoofing]
+◾️ Transfer PP Balance Method
+◾️ YouTube RED Trick
+◾️ Gaana Mod App
+◾️ Netflix Mod App
+◾️ Saavn Mod App
+◾️ Express VPN Mod App
+◾️ 7 Reasons a Credit Cārd Is Blocked
+◾️ Amazon Cārding Method [Video]
+◾️ What is Cārding? [Video]
+◾️ Basic Cārding Tutorial
+◾️ Phishing Tutorial
+◾️ Easy Cārdable Sites List
+◾️ Find Local BIN's
+◾️ Cārding For Noobs
+◾️ Cārding Online Tools And Website
+◾️ PayPal Cārding
+◾️ Wallmart Cārding
+◾️ Amazon Cārding [Video]
+◾️ eBay Cārding [Video]
+◾️ How To Find Credit Cārd For Cārding [Video]
+
+📥 Download Link:
+https://drive.google.com/file/d/1BoBPNEYvMnCENDK_IUmA5XLkqbCoUZtr/view?usp=drivesdk
+
+Password: abcd
+
+Don't forget to share and support us ❣
+
+➖@exploithacker➖
+
+🔰 Bulk Instagram, Facebook, Gmai Account Creator 🔰
+
+Steps : 
+
+1) Download the file and decompress it.
+
+2) Execute PVA Creator.exe
+
+3) A window downloading XUL runner will appear, let it finish, it's necessary.
+
+4) After will appear a window to update some modules or the program version, don't update it!
+
+Download Link :
+https://mega.nz/folder/8OUQ1AqC#CW7t6YXWgjfEKBgLZ0_yvg
+
+For Password Check Password File in Given Link ✅
+
+➖🔻 Share & Support Us 🔺➖
+
+owner:-. @SoUmYaJiT_SJ
+
+DEEP WEB💥 PRIVATE COURSE LEAK
+
+COMPLETE COURSE
+
+https://drive.google.com/drive/u/0/mobile/folders/1samgMCdCtgB6S7W7eKANtSmSLF_uI3Nq
+
+LEAK BY @SoUmYaJiT_SJ
+
+ENJOY LEARN FREE😂
+
+♻️SOFTWARE REVERSE ENGINEERING COUSE♻️
+
+PRICE: Free!
+
+LINK: MEGA
+
+TIME: Latest
+
+🌀ABOUT: Ever wondered how hackers crack various programs and games? Have you always wanted to mod an app but don't know the know how? That's what our Giveaway is addressing today! Learn how to reverse engineer apps via this detailed course! Split into short sweet videos to make it easy for you to understand, your level of skill doesn't matter. All you need to do is hop in and get your questions addressed.
+
+SP: This course is made for beginners and intermediate hackers. ENJOY. 
+
+▪️LINK:- https://mega.nz/folder/XWRjVAAA#_kLgDVCfVTGAuFTDRsk1WQ/folder/XfYTjSgY
+
+➖🔻 Share & Support Us 🔺➖
+
+🔰ADVANCED HACKING - CRACKING METHODS BUNDLE🔰
+
+✅Size :- 1.61 GB
+[●] - ʜᴀᴄᴋɪɴɢ ᴍᴇᴛʜᴏᴅs
+[●] - ᴄʀᴀᴄᴋɪɴɢ ᴍᴇᴛʜᴏᴅs
+[●] - ɪɴᴄᴏᴍᴇ ᴍᴇᴛʜᴏᴅs
+[●] - ᴇᴀʀɴɪɴɢ ᴍᴇᴛʜᴏᴅs 
+[●] - ᴄᴏᴅɪɴɢ ᴍᴇᴛʜᴏᴅs
+[●] - ᴅᴀʀᴋᴡᴇʙ ɢᴜɪᴅᴇs
+[●] - ʙʟᴀᴄᴋʜᴀᴛ ɢᴜɪᴅᴇs
+[●] - ᴄᴀsʜ ᴇ-ʙᴏᴏᴋs ᴇᴛᴄ.
+
+🔻L!NK :- https://mega.nz/folder/2dozgRbZ#0nm5BaIgW0Hw0vUxjgHt8g/folder/uNhyGYBB
+
+➖🔻 Share & Support Us 🔺➖
+
+​🔰KALI LINUX MASTER CLASS🔰
+
+🖱ᴘʀɪᴄᴇ :- 1800$
+Ⓜ️sɪᴢᴇ :- 265ᴍʙ
+✅ᴛʏᴘᴇ :- ʜᴀᴄᴋɪɴɢ | ʟɪɴᴜx
+
+🔻L!NK :- https://mega.nz/folder/2i5UBRBR#_2tMyaqGD1L6Xl3fRdyhxw
+
+➖🔻 Share & Support Us 🔺➖
+
+🔥 😍Bug hunting course with Android
+
+Link :☢️ https://mega.nz/folder/h4hHGIYa#2ta4n94iQNnVzpJToVPLVw
+
+Pass : server_z
+
+🔰 CRACKING PACK 🔰
+
+Contains :- 
+🔹 Proxy checkers 
+🔹 Proxy grabbers 
+🔹 SQL Tools 
+🔹 Dork making tools 
+🔹 Combo making tools 
+🔹 Parsers 
+🔹 Testers
+🔹 Checkers
+🔹 SQLi Dumper
+🔹 And Many Such Tools
+
+💾 Size - 1.9GB
+
+Download Link :-
+https://anonfiles.com/X0Ibc6u1o1/THE_PACK_OF_THE_GODS_3.0_-BIG_BANG_UPDATE_APRIL_28-_2020_rar
+
+🥷Posted By @x9_senior
+
+♻️Share Our Channel and Support US♻️
+
+MEGA INSTAGRAM HACKPACK
+
+Hack Instagram account with fake followers technique (Video Tutorial Leaked)
+
+Hack Instagram using Kali Linux(Video Tutorial)
+
+Hack Instagram Using Termux (Video Tutorial) 
+
+The Complete Security And Hacking  On Instagram Advanced Course
+
+How to Hack Instagram using bruteforce method
+
+Hack Instagram with best working methods
+
+Hijack Instagram method
+
+Instagram Hacking script with bruteforce attacking using termux
+
+Instagram Hacking using fake login page by phishing method
+
+Instagram Hacking method using termux tools
+
+Instagram verification method
+
+Instagram Xtreme Mod Apk 2020 Updated Apk
+
+Instagram Black Mod Apk
+
+Instagram Xtreme Black Mod Apk Pro
+
+Anti Revoke Messages Apk(Get All Deleted Messages on Instagram)
+
+Instagram Hypervote Terminal
+
+Method toTrack location of a person chatting on Instagram method
+
+Method to Get a verified badge on Instagram
+
+Method To Get Delete Instagram Search History And Recover  it Back
+
+Top 10 Instagram Free likes and followers Sites
+
+Instagram BOT Gain Followers With Autofollow like and Unfollow
+
+Instagram Followers Course Worth1200$
+
+https://www.mediafire.com/file/uzu562fkd5mwk4z/MEGA_INSTAGRAM_HACKPACK.zip/file
+
+​​🔰 Ethical Hacking - Capture the Flag Walkthroughs - V1 & V2 🔰
+
+Video And Lab Walkthroughs For Capture The Flag Exercises That Will Help Strengthen Your Ethical Hacking Skills
+
+🌀 Download Link [Free] :
+https://mega.nz/folder/l7B00TyL#a3mH425zcaBuILkWJ5h3FQ
+
+❤ Credit: @x9_senior
+
+➖🔻 Share & Support Us 🔺➖
+
+⚡️ Microsoft Excel from A-Z: Beginner To Expert Course ⚡️
+
+What you'll learn :
+Learn to master Excel from A-Z
+How to become a professional Data Analyst
+How to be a better, faster, stronger Excel user
+How to land your first job as an Excel Expert
+How to save hours of time and boost your productivity in Excel
+How to find a value with VLOOKUP, HLOOKUP, INDEX, MATCH
+How to use math, statistical, logic and text functions
+How to use VBA and Macros
+How to use VLOOKUP/HLOOKUP in formulas
+How to create basic and advanced formulas
+Mastering Pivot Tables
+Creating Charts from your data
+
+Udemy Link : https://www.udemy.com/course/microsoft-excel-from-a-z/
+Price : 3499
+
+Course Link : https://mega.nz/folder/GvARGCjR#xw2Jg0TcLthxK6jKODZvug
+Free
+
+Credits:- @x9_senior
+
+➖🔻 Share & Support Us 🔺➖
+
+🌟 PYTHON - A to Z Full Course for Beginners 🌟
+➖➖➖➖➖➖➖➖➖➖➖
+
+Link :
+https://drive.google.com/drive/folders/18bugg6hBkODmGWDTa1T4v-W9uoCiLOHm
+➖➖➖➖➖➖➖➖➖➖➖➖
+🔅🔅🔅🔅🔅🔅🔅🔅🔅🔅🔅🔅
+Credits => @x9_senior
+
+➖🔻 Share & Support Us 🔺➖
+
+🌟 The Complete Ethical Hacking Course 🌟
+➖➖➖➖➖➖➖➖➖➖➖➖
+
+Download Link :
+https://mega.nz/folder/WvIlFCLQ#KHWbWS4Ez57R3jCdpYdREw/folder/yuwimBTD
+➖➖➖➖➖➖➖➖➖➖➖➖
+🔅🔅🔅🔅🔅🔅🔅🔅🔅🔅🔅🔅
+Credits => @x9_senior
+➖➖➖➖➖➖➖➖➖➖➖➖
+
+➖🔻 Share & Support Us 🔺➖
+
+💠Android Ethical Hacking Course 💠
+
+A well structured course that able to build a solid basic understanding of android pen testing and ethical hacking concepts for beginner
+⭐️Transfom your Android Device into an Advance Ethical Hacking Machine
+⭐️Instagram Hacking like pro ATTACKER and make people people aware of such an attack
+⭐️Facebook Hacking like pro ATTACKER and make people people aware of such an attack
+⭐️Any Social Media Hacking as PRO Attacker and make people people aware of such an attack
+⭐️Metasploit Framework
+⭐️Learn how to Use Termux from Scratch
+⭐️PORT Forwarding
+⭐️Clone any Website
+⭐️What is Shell ?
+⭐️BASH Scripting
+⭐️What is F-Droid and its Importance
+⭐️Package Management
+⭐️Learn various CLI commands and use it like a Pro Penetration Tester
+⭐️LAN Attack
+⭐️WAN Attack
+⭐️Learn how to make Persistent Payload
+⭐️Cyber Security Terminology
+⭐️Metasploit Architecture
+⭐️Phishing Attack
+⭐️Run Kali Linux in your Android Device without Root
+⭐️Vulnerability , Exploit , Payload
+⭐️Bind Shell and Reverse Shell
+⭐️PHP Programming
+⭐️Ways to Prevent Cyber Attacks
+⭐️Essential Tools of Encryption and Decryption
+⭐️Learn Encryption and Decryption
+⭐️How to access the Front Camera of the Victim
+⭐️Protect Your files with Passwords
+⭐️Installing PHP and Starting the Server
+⭐️Convert your Phishing Website into an Android App
+⭐️Wifi Password Cracking
+⭐️using of Hackers KeyBoard
+⭐️Social Engineering
+
+❤️‍🔥Course Link
+https://mega.nz/folder/svpm0JSS#BDZSgwDitVwupbo2T-Iw6Q
+
+Credits : @x9_senior
+
+♻️Share Our Channel and Support US♻️
+
+⚡️FULL WIFI HACKING GUIDE EXPERTS AND BEGINNERS (2022)⚡️
+
+💢Found this in a bible and wanted to share.
+
+❇️Download:
+https://anonfiles.com/9697f0I4x9/1_HACKI...COURSE_zip
+
+👉this is for educational and fun purposes only ✅
+
+❤️credit: http://t.me/cybersec_giveaway_bot
+
+⚡️SHARE OUR CHANNEL AND KEEP SUPPORT US🥂
+
+💙Advance ANdroid Hacking Course  Free❤️
+
+💙Introduction to Termux
+💙Checking the status of target Machine
+💙Miscellaneous Hacking
+💙DDOS Attack
+💙SQL mapping
+💙Finding Location
+💙Web Scanning
+💙Phishing Attack
+💙Brute Force Attack
+💙Installation SEtoolkit
+💙Instagram Hacking 
+💙Fb hacking 
+
+🍎 https://mega.nz/folder/NLoWTZ5b#foX6MUseq8bNWirF_3eS1A
+
+👉this is for educational and fun purposes only ✅
+
+❤️credit: http://t.me/cybersec_giveaway_bot
+
+⚡️SHARE OUR CHANNEL AND KEEP SUPPORT US🥂
+
+🥳 All Python Courses 📣
+
+
+🔸Android-App-Development-Design-Pat🔸terns-Mobile-Architecture 🔸🔸Ethical-Hacking-Mobile-Devices-Platforms
+🔸Ethical-Hacking-System-Hacking
+🔸Ethical-Hacking-Website-Web-Application-Testing
+🔸jQuery-Essential-Training
+Learning-Functional-Programming-JavaScript
+🔸Learning-Linux-Shell-Scripting
+🔸PHP-MySQL-Essential-Training-1-Basics
+🔸Practical-Cybersecurity
+🔸Python-3-Essential-Training
+🔸Python-GUI-Development-Tkinter
+SEO Courses
+🔸SQL-Essential-Training
+🔸Troubleshooting-Your-Network-Wireshark
+🔸Hacking Tools Pack
+🔸Android Security and Exploitation for Pentesters
+🔸Javascript for Pentesters
+🔸Make your own Hacker Gadget
+🔸Python For Pentesters
+🔸Real World Pentesting
+🔸Scripting Wi-Fi Pentesting Tools in Python
+
+🔖Link 
+https://mega.nz/folder/TyhGnIiR#XlHwR6qa4cZ3Tl1bSm2-QA
+
+
+👉this is for educational and fun purposes only ✅
+
+❤️credit: http://t.me/cybersec_giveaway_bot
+
+❤️Share our channel and support us ❤️
+
+🔥 BASICS OF ETHICAL HACKING CORE TRAINING 2022 🔥
+
+🔰TOPICS
+1. The Truth About Living in a Technology Based World
+2. Overview of the CEH Certification Program
+3. How to Build a Lab to Hack Safely
+4. Installing and Configuring Your Windows Server VMs
+5. Installing and Configuring Your Desktop VMs
+6. Information Security Overview
+7. Security Threats and Attack Vectors
+8. Hacking Concepts
+9. Hacking Phases
+10. Attack Types
+11. Information Security Controls
+12. How to Prepare for the Certified Ethical Hacker Exam
+
+LINK:- https://mega.nz/folder/J7ARwAiB#yGy3LmBUVuUnCL6PWsX3mA
+
+Join Us @cybersec_giveaway_bot 🔥
+
+🔔Unmute Notification & Share Channel For More ✅
+
+🔶  Courses from Lindsay  🔶
+
+👉Design Trends 2021 and How to Create Them
+https://drive.google.com/drive/folders/15dYWj6dRs_pGfNhI_eNL9xBaRwCjqcnB?usp=sharing
+
+👉Digital Design Masterclass for Graphic Designers
+https://drive.google.com/drive/folders/11Q6PhDtuThq_9kiC24rv967_hQ-_ynAU?usp=sharing
+
+👉Getting Started with Adobe Illustrator: Learn Through Projects!
+https://drive.google.com/drive/folders/1wsONHkGiZHqzTWuDd6KVGK0t_iT9Lova?usp=sharing
+
+👉Graphic Design Fundamentals in Canva: Learn GREAT Design:Theory & Projects
+https://drive.google.com/drive/folders/1kmcwxTb-3qEJaO6wnQ0CxSYZ-0CfKcOj?usp=sharing
+
+👉Graphic Design Masterclass Intermediate: The NEXT Level
+https://drive.google.com/drive/folders/1yUfR7FdNQa7nhsYBG26fHE5k07kWiPlR?usp=sharing
+
+👉Graphic Design Masterclass: Learn GREAT Design
+https://drive.google.com/drive/folders/1QkOaONZPiETTmNn1ZOi6Toa_dZRjJNPe?usp=sharing
+
+
+👉Graphic Design Mastery: The Complete Branding Process
+https://drive.google.com/drive/folders/1k7q2xEwMyH5U-Y8xVrrbfb-Wbmbvuhk0?usp=sharing
+
+👉Learn Adobe Dimensions and Create A Soda Can Mockup
+https://drive.google.com/drive/folders/1f2ZW5F-wt71Et993EN9ryO_P67_tvxfm?usp=sharing
+
+👉Logo Design Mastery: The Full Course
+https://drive.google.com/drive/folders/1UgxrUW73Yu1nKH_vgW1_uq8i_QJknr7q?usp=sharing
+
+👉Master Graphic Design & Software with Practical Projects
+https://drive.google.com/drive/folders/1vUVjxW2J1MhjsKxShZuyvFw0c_3MY3IW?usp=sharing
+
+👉Photoshop Manipulation and Editing Masterclass
+https://drive.google.com/drive/folders/1CPE5AtWswL1mA8S2xHOF0o7SYWwTjM7s?usp=sharing
+
+👉The Branding Masterclass for Graphic Designers: The Entire Process
+https://drive.google.com/drive/folders/1gBUWlIHbhxJiS5z45HEnXFa3wCkS1sFC?usp=sharing
+
+👉The Freelance Masterclass: The Ultimate Guide to Freelancing
+https://drive.google.com/drive/folders/1Ex5Zo49zU78BcSFzOsPQ1EZc8yHdFABB?usp=sharing
+
+👉The Mockup Creation Course for Adobe Photoshop and Affinity Photo
+https://drive.google.com/drive/folders/1QNorwJuqW7X4oxUl9nh7kyodRP8vChK2?usp=sharing
+
+By @Hacktiva_Giveaway
+
+➖🔻 Share & Support Us 🔺➖
+
+Metasploit Framework-Penetesting metasploit from basics
+
+Size: 4.96GB
+
+Link:
+https://mega.nz/folder/gOogQQ4Q#yM2h1ZNQTCPzaA316B16Hg
+
+ Share & Support Us
+Happy Learning with Hacktiva Official 🥳
+
+➖🔻 Share & Support Us 🔺➖
+
+🔰 BEGINNERS TO MASTER HACKING TUTORIALS 🔰
+
+WHAT DOES IT CONTAIN?
+
+🤡VIRTUAL LAB SETTING
+🤡PROXY
+🤡SCANNING NETWORK
+♻️ENUMERATION
+♻️SYSTEM HACKING
+♻️VIRUS TROJANS & MALWARES
+♻️SNIFFING
+♻️SPOOFING
+♻️SOCIAL ENG
+♻️DOS & DDOS
+
+✅AND MANY HACKING TUTORIALS
+
+🥶DOWNLOAD LINK :-
+
+https://mega.nz/folder/I3oFEDxK#_pd-OZIJlhven8MY-rU_HQ
+
+For Any Help Contact Here @Hacktiva_support_bot 
+
+➖🔻 Share & Support Us 🔺➖
+
+🔰 Ethical Hacking-Hacking Wireless Networks, by Dale Meredith 🔰
+
+Download Link:
+https://mega.nz/folder/WtZkADTK#_kISqR4I8AyVoBMfBcd_wQ
+
+For Any Help Contact Here @Hacktiva_support_bot
+
+➖🔻 Share & Support Us 🔺➖
+
+🔥ADVANCED HACKING - CRACKING METHODS BUNDLE🤑
+
+✅Size :- 1.61 GB
+
+
+Link 🔥- https://mega.nz/folder/2dozgRbZ#0nm5BaIgW0Hw0vUxjgHt8g/folder/uNhyGYBB
+
+🔰 LiveLessons - Certified Kubernetes Administrator (CKA), 2nd Ed, by Sander Van Vugt 🔰 
+
+Download Link:
+https://mega.nz/folder/Wm4EiIID#zS61ms-EMG3iM-dKv8U4OA
+
+For Any Help Contact Here @Hacktiva_support_bot
+
+➖🔻 Share & Support Us 🔺➖
+
+🔰 Ethical Hacking-Hacking Wireless Networks, by Dale Meredith 🔰
+
+Download Link:
+https://mega.nz/folder/WtZkADTK#_kISqR4I8AyVoBMfBcd_wQ
+
+For Any Help Contact Here @Hacktiva_support_bot
+
+➖🔻 Share & Support Us 🔺➖
+
+🔰 Cyber Security Masterclass - All About IT Security 🔰
+
+Content: 
+🌐Cyber Security Masterclass - Course Intro
+🌐Cybersecurity Principles
+🌐IAM - Identity an Access Management
+🌐Secure Protocols
+🌐Cryptography,Hashinh and Digital Signatures
+🌐Infrastructure Security
+🌐Logging and Monitoring
+🌐System Resilience 
+🌐Application Architecture and Infrastructure
+🌐Incident Detection and Response
+🌐Conclusion
+
+Download Link :
+https://mega.nz/folder/gfsXjTqT#OQvHMAynK3zm-m2V1OhYmQ
+
+For Password Check Password File Given in the Link ✅
+
+Note: If Your English Is Weak Then This Course is Useless For You and You Can't Understand Its easily 👍
+
+For Any Assistance Contact Us here @Hacktiva_bot 
+
+➖🔻 Share & Support Us 🔺➖
+
+🔰 Ethical Hacking-Hacking Wireless Networks, by Dale Meredith 🔰
+
+Download Link:
+https://mega.nz/folder/WtZkADTK#_kISqR4I8AyVoBMfBcd_wQ
+
+For Any Help Contact Here @Hacktiva_support_bot
+
+➖🔻 Share & Support Us 🔺➖
+
+🔰 Premium Udemy Courses 🔰
+
+PART 1
+
+Download Link:
+https://mega.nz/folder/efY0AR4T#0jnk5etjz1jfX2kmhvdJYw
+
+For Any Help Contact Here @Hacktiva_Support_bot
+
+➖🔻 Share & Support Us 🔺➖
+
+🔰 Premium Udemy Courses 🔰
+
+PART 2
+
+Download Link:
+https://mega.nz/folder/1DRUUBoR#K1ywmHQSe3SnqjpWkV0o7g
+
+For Any Help Contact Here @Hacktiva_Support_bot
+
+➖🔻 Share & Support Us 🔺➖
+
+🔰 Premium Udemy Courses  🔰
+
+PART 3
+
+Download Link:
+https://mega.nz/folder/FSZHwKBa#iGFBQB78N-gUs4KCl31B9g
+
+For Any Help Contact Here @Hacktiva_Support_bot
+
+➖🔻 Share & Support Us 🔺➖
+
+🔰 Premium Udemy Courses  🔰
+
+PART 4
+
+Download Link:
+https://mega.nz/folder/11IDBAgA#aZ0mCPN8EuwX3lP3tBT7Zw
+
+For Any Help Contact Here @Hacktiva_Support_bot
+
+➖🔻 Share & Support Us 🔺➖
+
+🔰 Premium Udemy Courses  🔰 
+
+PART 5
+
+Download Link:
+https://mega.nz/folder/gxIHkQaa#CKCdB3_bO0bKYG36fen4OQ
+
+For Any Help Contact Here @Hacktiva_Support_bot
+
+➖🔻 Share & Support Us 🔺➖
+
+🔰 Premium Udemy Courses  🔰
+
+PART 6
+
+Download Link:
+https://mega.nz/folder/XHoiCDgC#oMbKU6pHPzV-6l9qBQcBbw
+
+For Any Help Contact Here @Hacktiva_Support_bot
+
+➖🔻 Share & Support Us 🔺➖
+
+🔰 Premium Udemy Courses  🔰
+
+PART 7
+
+Download Link:
+https://mega.nz/folder/xDBggB5R#__8JJX9IVYZKaOxNTWX2ww
+
+For Any Help Contact Here @Hacktiva_Support_bot
+
+➖🔻 Share & Support Us 🔺➖
+
+🔰 SOFTWARE CRACKING TUTORIAL 🔰
+
+ In this you will learn:
+🌐 How to crack software?
+🌐 How to remove on screen notification(very annoying)?
+🌐 How to remove key verification?
+🌐 How to bypass 30days trial?
+
+MEGA LINK : 
+
+https://mega.nz/folder/XWRjVAAA#_kLgDVCfVTGAuFTDRsk1WQ
+
+Our Channel : @Hacktiva_official
+
+Credits : @exe_cyber
+
+➖🔻 Share & Support Us 🔺➖
+
+🔰 Adobe Premiere Pro CC Video Editing Course Beginners To Pro 🔰
+
+Learn Video Editing in Adobe Premiere Pro with Color Correction & Color Grading and Professional Video Editing practices.
+
+Download Link : 
+https://mega.nz/folder/lbV33T6Q#TR-EFBvQHoOWghdxiX6GKw
+
+For Any Assistance Contact Us @Hacktiva_bot 
+Email : contact@hacktiva.us
+
+➖🔻 Share & Support Us 🔺➖
+
+Collection Of Hacking Operating Systems
+
+#operating_systems
+
+These are OS that have been designed specifically for hackers.
+
+✔️ Backtrack5r3
+🔗 Link : 
+https://linux.softpedia.com/dyn-postdownload.php/c230432fe1fe505590023b5beaf41c36/5f2d2982/2505/0/1
+
+✔️ Kalilinux
+🔗 Link : 
+https://cdimage.kali.org/kali-2020.2/kali-linux-2020.2-installer-amd64.iso
+
+✔️ Knoppix
+🔗 Link :
+http://www.knopper.net/knoppix-mirrors/
+
+✔️ Backbox linux
+🔗 Link :
+https://www.backbox.org/download/
+
+✔️ Pentoo
+🔗 Link :
+https://www.pentoo.ch/isos/latest-iso-symlinks/Daily/
+
+✔️ Matriux Krypton
+🔗 Link :
+https://sourceforge.net/projects/matriux/
+
+✔️ NodeZero
+🔗 Link : 
+https://sourceforge.net/projects/nodezero/files/NodeZero/NodeZero.iso/download
+
+✔️ Blackbuntu
+🔗 Link : 
+https://sourceforge.net/projects/blackbuntu/
+
+✔️ CAINE (Computer Forensics Linux Live Distro)
+🔗 Link :
+https://mirror.parrotsec.org/mirrors/parrot/iso/caine/caine11.0.iso
+
+✔️ DEFT
+🔗 Link :
+http://na.mirror.garr.it/mirrors/deft/iso/
+
+✔️ Arch Linux
+🔗 Link :
+http://mirrors.evowise.com/archlinux/iso/2020.08.01/
+
+✔️ Qubes OS
+🔗 Link : 
+https://mirrors.edge.kernel.org/qubes/iso/Qubes-R4.0.3-x86_64.iso
+
+✔️ Tails OS 
+🔗 Link :
+https://tails.boum.org/install/index.en.html
+
+✔️ Parrot OS
+⚠️ Note There Are Different Notes, Read Here First: https://www.parrotsec.org/docs/getting-started/download/
+
+🔗 Link :
+https://www.parrotsec.org/download/
+
+✔️ Samurai Web Testing Framework
+🔗 Link :
+https://sourceforge.net/projects/samurai/files/
+
+✔️ BugTrack
+🔗 Link : 
+https://sourceforge.net/projects/btrack/
+
+✔️ Weakerthan Linux (Changed to Demon Linux)
+🔗 Link : 
+https://demonlinux.com/download/iso/demon-2.4.4.iso
+
+✔️ Cerberus (Windows)
+🔗 Link : 
+https://mega.nz/file/1ZVRgSoQ#RsUCmgH_uJRmB1hg7YmseE9Lnz1VUZBYe-bjRckbNDs
+
+✔️ Black Spider v2 (Windows)
+🔗 Link : 
+https://drive.google.com/file/d/1zbvIhyLsz0q6nDGifnkBSzZaip67WdFP/view
+
+✔️ Black Arch 
+🔗 Link : 
+https://ftp.halifax.rwth-aachen.de/blackarch/iso/blackarch-linux-live-2020.06.01-x86_64.iso
+
+✔️ Network Security Toolkit (NST)
+🔗 Link :
+https://sourceforge.net/projects/nst/
+
+✔️ Cyborg Hawk Linux 
+🔗 Link : 
+https://sourceforge.net/projects/cyborghawk1/files/Cyborg%20Hawk%20v1.1/cyborg-hawk-linux-v-1.1.iso/download
+
+🔻SHARE AND SUPPORT US🔻
+
+https://t.me/+RM6HCbeFDkWYWGBC
+
+😍 Premium Ethical Hacking Core Complete Training 2022 free 😍
+
+❤️‍🔥Basics
+https://mega.nz/folder/q1sBVA5S#fpOQ-RabcJ1ZzOWzltBDNQ
+
+❤️‍🔥 Reconnaissance and Footprinting
+https://mega.nz/folder/mwshSA5B#PbaxlFQVrOgfZu0BqNyVcg
+
+❤️‍🔥 Network Scanning 
+https://mega.nz/folder/O9llBCDB#W6tbLrqTmnBxVJ6SaXL8ZQ
+
+❤️‍🔥Enumeration
+https://mega.nz/folder/D0kVVCDA#qvANCi963li4nX20VhmsOg
+
+❤️‍🔥Firewalls HIDs Honeypot
+https://mega.nz/folder/ahlTkQYB#90zz0zgkqI9jfN4NkdNJeg
+
+❤️‍🔥Malware and Threats
+https://mega.nz/folder/3l1FkCKa#v4zPLgKw0Rt83OivNB3ecw
+
+❤️‍🔥Mobile Platform
+https://mega.nz/folder/n0ljgIJS#ClKBZrCcwVxrtvRH2Xufag
+
+❤️‍🔥Pentesting
+https://mega.nz/folder/3lkVRC5J#yYbWkNmr9TSNRJeuWjv8wA
+
+❤️‍🔥Sql Injection
+https://mega.nz/folder/T58BCaZA#Y0qA4kVlL89sa_aqKTfF6w
+
+❤️‍🔥 System Hacking 
+https://mega.nz/folder/fl0zASTQ#LmHEdWMV3rLOH6uaN8NumQ
+
+❤️‍🔥 Web Server
+https://mega.nz/folder/WhljyCJY#Kjv8_NAjZMDXsSsTuEQZTA
+
+❤️‍🔥 Wireless Network
+https://mega.nz/folder/KpkRyaLC#T5__v0YRn-v1zApPobqHLg
+
+❤️‍🔥Cloud Computing
+https://mega.nz/folder/W9lRTS7R#h8dIqNU09Ailu5zbZDXBxw
+
+❤️‍🔥Web Application
+https://mega.nz/folder/2493FKiT#oszsZfvXROVzxzuMb-L-nA
+
+❤️‍🔥 Social Engineering
+https://mega.nz/folder/HgkRkQwa#tIFjoPKSF_x4WghMXbCAAw
+
+❤️‍🔥 Session Hijacking
+https://mega.nz/folder/vwsThKrK#_EP-v9duwWRXhFy1iSLaGQ
+
+❤️‍🔥 Sniffing
+https://mega.nz/folder/L41lhAaJ#IrSlNc_Ui_IyU05jLom8Iw
+
+❤️‍🔥BufferOverflow
+https://mega.nz/folder/as93RYrA#p8-xQUIyIvwiwZUY-3zYYQ
+
+❤️‍🔥Cryptography
+https://mega.nz/folder/fltjAapQ#WlwEsa4VZl1RrEEiHwHdUQ
+
+❤️‍🔥Denial Of Service
+https://mega.nz/folder/L801WYAC#CKzDuFRkTumpea2zfd8ieA
+
+👤 Credits: @Myhackersworld2
 
 🔥WHATSAPP HACKING BY USING GIF FILE 🔥
 
